@@ -1,4 +1,4 @@
-# Judgement Day for Alex Murdaugh — Week 4 (Feb 13 — Feb 17)
+# Judgment Day for Alex Murdaugh — Week 4 (Feb 13 — Feb 17)
 
 ## Boss Hogg of Hampton County 
 
