@@ -1,2 +1,3 @@
-# SouthernGothicTaleMoneyMurderMystery
-The saga of what was a legal dynasty and it's fall from grace to jail
+# A Southern Gothic Tale of Money, Murder, and Mystery
+
+For generations, the Murdaugh family has ruled over the Fourteenth Judicial Circuit of South Carolina, encompassing the counties of Allendale, Beaufort, Colleton, Hampton, and Jasper. 
