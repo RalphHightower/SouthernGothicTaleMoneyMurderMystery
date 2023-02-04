@@ -1,8 +1,8 @@
-# Judgement Day for Alex Murdaugh — Week 6 (Feb 20 — Feb 24)
+# Judgement Day for Alex Murdaugh — Week 6 (Feb 27 — Mar 3)
 
 ## Boss Hogg of Hampton County 
 
 | Date/Event |
 |----|
-| **February 20, 2023**  |
+| **February 27, 2023**  |
 | []() |
