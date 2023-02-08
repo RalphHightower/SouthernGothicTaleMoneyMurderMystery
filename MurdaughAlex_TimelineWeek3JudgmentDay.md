@@ -38,7 +38,6 @@ Defense attorneys contend the financial evidence is prejudicial and unrelated to
 |The issue is likely to be discussed further Feb. 7, when the SLED lab analyst who ran gunshot residue tests is expected to testify.|
 | **February 7, 2023**|
 | [Local Artist Capturing ‘Murdaugh Murders’ Trial](https://www.fitsnews.com/2023/02/07/local-artist-capturing-murdaugh-murders-trial/) |
-|A front row seat to history …|
 | A front row seat to history … |
 | *“Who is the woman in the racing jacket?”* |
 |That’s been among the most popular questions I’ve received from members of our audience during the ongoing double homicide trial of disbarred attorney/ accused killer Alex Murdaugh – the man at the center of the ‘Murdaugh Murders’ crime and corruption saga.|
