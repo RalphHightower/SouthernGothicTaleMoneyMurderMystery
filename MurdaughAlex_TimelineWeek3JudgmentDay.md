@@ -37,6 +37,35 @@ Defense attorneys contend the financial evidence is prejudicial and unrelated to
 |Waters, the lead prosecutor, said her testimony established a connection. Unable to agree on what Smith said, Harpootlian suggested Newman pull a transcript of her testimony.|
 |The issue is likely to be discussed further Feb. 7, when the SLED lab analyst who ran gunshot residue tests is expected to testify.|
 | **February 7, 2023**|
+| [Will the feds charge Murdaugh?](https://www.postandcourier.com/archives/murdaugh/will-the-feds-charge-murdaugh/article_f8d564ec-a72b-11ed-955e-33292c5ac485.html) |
+|Over the past 18 months, state investigators have indicted disgraced former attorney Alex Murdaugh 19 times. The state grand jury has leveled nearly 100 criminal charges against him, alleging everything from insurance fraud and theft to money laundering and drug trafficking.|
+|But to date, federal prosecutors haven’t lodged a single charge against the once-respected Hampton lawyer, even though he played a central role in the federal fraud trial of former Palmetto State Bank CEO Russell Laffitte in November.|
+|Laffitte was convicted on all six charges, most of which alleged he helped Murdaugh steal from their mutual clients. That has left close followers of this high-profile case wondering when the feds will charge and prosecute Murdaugh himself.|
+|Spoiler alert: They probably won’t.|
+|I should couch this by saying that this could always change as the Murdaugh saga twists and turns and as circumstances evolve. But as things stand, I don’t expect federal prosecutors to charge Murdaugh.|
+|There are a few things at play here.|
+|One is the frosty relationship between the S.C. Attorney General’s Office – the state – and the U.S. Attorney’s Office for South Carolina – the feds.|
+|Those two offices have worked together on plenty of cases in the past, including investigations into crooked sheriffs and the $9 billion V.C. Summer nuclear fiasco.|
+|But their relationship has also been fraught with behind-the-scenes turf wars over who gets to indict whom, who goes first in prosecuting, and who gets the credit.|
+|As I understand it, the Attorney General’s Office has laid exclusive claim to the prosecution of Alex Murdaugh. That means the state will handle the double-murder case, Murdaugh’s financial crimes, his alleged drug trafficking and money laundering – all of it.|
+|Everyone agreed long ago that federal prosecutors would tackle the Laffitte portion of the investigation, I’m told.|
+|I don’t expect that agreed-upon division of labor in this case to change. So just as I don’t suspect the feds will prosecute Murdaugh, I also don’t expect the state to take their own charges against Laffitte to trial.|
+|Another factor at play here is the Petite policy. While it isn’t an enforceable rule or law, the U.S. Department of Justice generally doesn’t follow the state in prosecuting a defendant for the same criminal acts unless there is some compelling reason for the federal government to get involved.|
+|There are a few reasons for that policy, the product of a 1960 U.S. Supreme Court case – Petite vs. the United States – where double jeopardy became a major issue.|
+|The policy is meant to save prosecutorial resources and protect defendants from the financial burden of going through multiple trials for the same conduct.|
+|It is also supposed to promote better coordination and cooperation between state and federal prosecutor.|
+|Those two sides are supposed to get together at some point during the course of a joint investigation and decide who is best suited to charging and prosecuting the crimes in question.|
+|Federal prosecutors typically prefer to be invited into these kinds of cases, rather than barging in and bigfooting their state counterparts.|
+|However, as I mentioned earlier, there are a few scenarios that constitute a “compelling reason” for the federal government to enter a case like this.|
+|A few hypotheticals:|
+|-The state charges and prosecutes the defendant but doesn’t win a conviction at trial.|
+|-The state tries the case but only wins convictions on some of the charges - and not others that allege substantial wrongdoing.|
+|-The state reaches a plea deal that the feds believe is too lenient.|
+|-The state wins a conviction, but the judge awards a sentence that is too light.|
+|-The state’s case falls apart before trial, and they can’t prosecute it on their own.|
+|If any of those scenarios play out in the Murdaugh financial cases, we might see the feds get more involved.|
+|Otherwise, their role appears to be as a backstop for the case – in which they can jump in and seek more punishment if they believe Murdaugh is getting off easy.|
+|I don’t think anyone expects that will be the case.|
 | [Local Artist Capturing ‘Murdaugh Murders’ Trial](https://www.fitsnews.com/2023/02/07/local-artist-capturing-murdaugh-murders-trial/) |
 | A front row seat to history … |
 | *“Who is the woman in the racing jacket?”* |
