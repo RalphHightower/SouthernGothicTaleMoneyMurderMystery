@@ -72,7 +72,7 @@
 | [Murdaugh Murders: Weapons Update](https://www.fitsnews.com/2021/06/09/murdaugh-murders-weapons-update/) |
 | [Rumors swirl about double homicide involving SC law family. Some details begin to emerge.](https://www.postandcourier.com/murdaugh-updates/rumors-swirl-about-double-homicide-involving-sc-law-family-some-details-begin-to-emerge/article_67286588-c926-11eb-9e15-fb18705b4843.html) <br>Patricia Moore, owner of Spinbad Church Supply in Hampton, said that Murdaugh is a powerful name in town. *“Scary family,”* Moore said. *“Everyone is scared of them.”* *“Regardless of what the family is like, they did not deserve to die like that,”* Moore said.|
 | [Murdaugh Murders: Weapons Update](https://www.fitsnews.com/2021/06/09/murdaugh-murders-weapons-update/) |
-| **Jun 10, 2021**|
+| **June 10, 2021**|
 | [SC law enforcement agencies deny access to public records in Murdaugh homicide case](https://www.postandcourier.com/murdaugh-updates/sc-law-enforcement-agencies-deny-access-to-public-records-in-murdaugh-homicide-case/article_cff02058-ca0a-11eb-afb6-fb91b8ce0ecb.html) |
 | [Murdaugh Murders: Funeral Arrangements Set For Paul And Maggie](https://www.fitsnews.com/2021/06/10/murdaugh-murders-funeral-arrangements-set-for-paul-and-maggie/) |
 | [Murdaugh Murders: Prosecutorial Turf War Looming?](https://www.fitsnews.com/2021/06/10/murdaugh-murders-prosecutorial-turf-war-looming/) |
@@ -85,13 +85,13 @@
 | [Murdaugh Murders: SLED Poring Through Digital Records Tied To Alex Murdaugh](https://www.fitsnews.com/2021/06/14/murdaugh-murders-sled-poring-through-digital-records-tied-to-alex-murdaugh/) |
 | **June 14, 2021**|
 | [Murdaugh Murders: SLED Poring Through Digital Records Tied To Alex Murdaugh](https://www.fitsnews.com/2021/06/14/murdaugh-murders-sled-poring-through-digital-records-tied-to-alex-murdaugh/) |
-| **Jun 14, 2021**|
+| **June 14, 2021**|
 | [Maggie and Paul Murdaugh were both shot multiple times, coroner says](https://www.postandcourier.com/murdaugh-updates/maggie-and-paul-murdaugh-were-both-shot-multiple-times-coroner-says/article_29a0f88a-cd52-11eb-981c-9fc0d15bbdcf.html) <br>The Colleton County Coroner confirms both Paul and Maggie Murdaugh died from multiple gunshot wounds. The estimated time of death is somewhere between 9 and 9:30 p.m. *“That is all the information we are releasing at this time,”* the coroner, Richard Harvey, said. *“They were both shot multiple times and SLED will take it from here.”* |
 | **June 15, 2021**|
 | [South Carolina State Law Enforcement Agency Issues Statement On Murdaugh Murders](https://www.fitsnews.com/2021/06/15/south-carolina-state-law-enforcement-agency-issues-statement-on-murdaugh-murders/) |
-| **Jun 15, 2021**|
+| **June 15, 2021**|
 | [Editorial: Release Murdaugh homicide report to quell rumors, comply with SC law](https://www.postandcourier.com/opinion/editorials/editorial-release-murdaugh-homicide-report-to-quell-rumors-comply-with-sc-law/article_240b7e64-cd42-11eb-a272-07b4b7af2fb9.html) |
-| **Jun 15, 2021**|
+| **June 15, 2021**|
 | [SLED releases new details in murder case of Paul and Maggie Murdaugh](https://www.postandcourier.com/murdaugh-updates/sled-releases-new-details-in-murder-case-of-paul-and-maggie-murdaugh/article_f7233ae8-ce15-11eb-a5ac-133f8d3f1e3f.html) |
 | **June 15, 2021**|
 | [Murdaugh Murders: Boat Crash Survivor’s Attorney Says Evidence Missing In Investigation](https://www.fitsnews.com/2021/06/15/murdaugh-murders-boat-crash-survivor-attorney-says-evidence-missing-in-investigation/) |
@@ -99,15 +99,15 @@
 | [Murdaugh Murders: The Latest On The Boat Crash Lawsuit And Obstruction Of Justice Investigation](https://www.fitsnews.com/2021/06/15/murdaugh-murders-the-latest-on-the-boat-crash-lawsuit-and-obstruction-of-justice-investigation/) |
 |  **June 16, 2021**|
 | [SLED Agents Searching Swamp Near Site Of Murdaugh Murders](https://www.fitsnews.com/2021/06/16/sled-agents-securing-crime-scene-near-site-of-murdaugh-murders/) |
-| **Jun 16, 2021**|
+| **June 16, 2021**|
 | [Murdaugh slayings tip line set up by state police](https://www.postandcourier.com/murdaugh-updates/murdaugh-slayings-tip-line-set-up-by-state-police/article_470b44ec-cecf-11eb-835f-63819dbc259f.html)<br>SLED creates a 24-hour dedicated tipline for the case: 803-896-2605. *“While SLED continues to pursue all leads in this active and ongoing joint investigation, we want to provide a centralized avenue for any member of the public to use to provide us with information related to this case,”* the agency said June 16. |
-| **Jun 17, 2021**|
+| **June 17, 2021**|
 | [Paul Murdaugh received threats before his death, Murdaugh family members say](https://www.postandcourier.com/murdaugh-updates/paul-murdaugh-received-threats-before-his-death-murdaugh-family-members-say/article_b66471c4-cf6f-11eb-b899-eb01e7713afd.html) *“I didn’t think it was a credible threat,”* he said in the segment. *“If it was, I would have tried to do something or notify someone. But, I guess, maybe I made a mistake.”*, John Murdaugh, Paul's brother.  *“I really don’t know of any enemies,”* Randy Murdaugh said. *“You hear all this talk on the social media with regard to Paul. I don’t know of anybody that would truly be an enemy or truly want to harm them.”* |
 | [The Post and Courier sues SLED, Colleton County for public records in Murdaugh murder case](https://www.postandcourier.com/murdaugh-updates/the-post-and-courier-sues-sled-colleton-county-for-public-records-in-murdaugh-murder-case/article_e584d152-cea6-11eb-80f1-1fd35058d57f.html) |
 | Alex Murdaugh's brothers, Randy Murdaugh IV and John Marvin Murdaugh, appear in an exclusive interview with ABC News in which they plead with the public to come forward with any information. They say they don't know whether the family has enemies but Paul Murdaugh had received threats. |
 | **June 18, 2021**|
 | [‘A Slap In the Face’: Update In The Stephen Smith Case And Murdaugh Murders](https://www.fitsnews.com/2021/06/18/a-slap-in-the-face-update-in-the-stephen-smith-case-and-murdaugh-murders/) |
-| **Jun 19, 2021**|
+| **June 19, 2021**|
 | [Almost 2 weeks since SC Murdaugh killing, police have offered few details — and a tip line](https://www.postandcourier.com/murdaugh-updates/almost-2-weeks-since-sc-murdaugh-killing-police-have-offered-few-details-and-a-tip/article_c918bfa2-cf9f-11eb-873e-cfe15ecdc2a8.html) |
 | [Murdaugh Murders: South Carolina Attorney General Must Step In And Remove ‘Rogue’ Solicitor](https://www.fitsnews.com/2021/06/19/murdaugh-murders-south-carolina-attorney-general-must-step-in-and-remove-rogue-solicitor/) |
 |  **June 21, 2021**|
@@ -126,7 +126,7 @@
 | [Murdaugh family offers $100K reward in double-murder case](https://www.postandcourier.com/murdaugh-updates/murdaugh-family-offers-100k-reward-in-double-murder-case/article_faee77c4-d5b2-11eb-8bec-2f2134271311.html) |
 | [Murdaugh Murders: Family Releases Statement On $100,000 Reward](https://www.fitsnews.com/2021/06/25/murdaugh-murders-publicist-for-family-releases-statement-on-100000-reward/)|
 |*“SLED has committed to them that if we receive a tip on the dedicated tip line that leads to the arrest and conviction of anyone responsible for the murders, that we will provide them with the information to evaluate the potential payment of the reward,”* SLED spokesperson Tommy Crosby told FITSNews. *“In order for SLED to maintain our independence we cannot be involved with facilitating or adjudicating any potential reward claims.”* <br>In the statement, Alex Murdaugh spoke to the public for the first time since the double homicide on June 7. <br> *“I want to thank everyone for the incredible love and support that we have received over the last few weeks. Now is the time to bring justice for Maggie and Paul,”* Alex Murdaugh said in the statement issued by the publicist. *“Buster and I, along with Maggie’s mother, father and our entire family, ask that anyone with helpful information immediately call the SLED tip line or Crime Stoppers.”*<br>*“You see words like ‘dynasty’ used and ‘power’ and I don’t know exactly how people use those words,”* Randy Murdaugh said. *“But we’re just regular people.. and we’re hurting just like they would be hurting.”* |
-| **Jul 1, 2021**|
+| **July 1, 2021**|
 | [Beyond the Headlines: The Murdaugh Case](https://www.postandcourier.com/beyond-the-headlines/beyond-the-headlines-the-murdaugh-case/article_dae0cd38-daad-11eb-b7cb-ab83bc1405b0.html) |
 | [Understand SC: Lack of details about Murdaugh homicides leaves questions, rumors](https://www.postandcourier.com/beyond-the-headlines/beyond-the-headlines-the-murdaugh-case/article_dae0cd38-daad-11eb-b7cb-ab83bc1405b0.html) |
 |  **July 4, 2021** |
@@ -165,15 +165,15 @@
 | **August 18, 2021**|
 | [Murdaugh Saga: Boat Crash Defense Lawyers Try To Clear Paul Murdaugh’s Name](https://www.fitsnews.com/2021/08/18/murdaugh-saga-boat-crash-defense-lawyers-try-to-clear-paul-murdaughs-name/) |
 | [‘Anything They Get In, They Get Out Of’: Bombshell Deposition Filed In Murdaugh Case](https://www.fitsnews.com/2021/08/18/anything-they-get-in-they-get-out-of-bombshell-deposition-filed-in-murdaugh-case/) |
-| **Aug 25, 2021** |
+| **August 25, 2021** |
 |[SC prosecutor steps aside from Murdaugh murder case, citing new developments](https://www.postandcourier.com/murdaugh-updates/sc-prosecutor-steps-aside-from-murdaugh-murder-case-citing-new-developments/article_c9e8ead4-05db-11ec-91ef-c7934ba9b921.html) |
 |  **August 31, 2021**|
 | [Four Weeks After Double Homicide, Alex Murdaugh Filed A Lawsuit In Another Boat Crash Case](https://www.fitsnews.com/2021/08/31/four-weeks-after-double-homicide-alex-murdaugh-filed-a-lawsuit-in-another-boat-crash-case/) |
-| **Sept. 2, 2021**|
+| **September 2, 2021**|
 | The PMPED law firm begins an investigation into Alex Murdaugh after finding a suspicious check on his desk. They say their investigation reveals Murdaugh had been taking money from the firm and clients for personal use. |
-| **Sept. 3, 2021**|
+| **September 3, 2021**|
 | Murdaugh is confronted about accusations of taking money from PMPED. He is asked to resign and does so that afternoon. |
-| **Sept. 4, 2021**|
+| **September 4, 2021**|
 | [Murdaugh father shot in Hampton County, airlifted to hospital, attorney says](https://www.postandcourier.com/murdaugh-updates/murdaugh-father-shot-in-hampton-county-airlifted-to-hospital-attorney-says/article_6f59f452-0db8-11ec-901d-37bbc0c13e47.html)<br>Alex Murdaugh is shot in the head while changing a tire in Hampton County, according to a family spokesperson. SLED is investigating. He is hospitalized in Savannah and said to be conscious and speaking. |
 | [Murdaugh Murders: Alex Murdaugh Shot In Hampton County South Carolina](https://www.fitsnews.com/2021/09/04/murdaugh-murders-alex-murdaugh-shot-in-hampton-county-south-carolina/) |
 | **September 5, 2021**|
@@ -197,7 +197,7 @@
 | **September 9, 2021**|
 | [Murdaugh Murders: Beach’s Attorney Makes Move To Secure Claims For Murdaugh Properties](https://www.fitsnews.com/2021/09/09/murdaugh-murders-beachs-attorney-makes-move-to-secure-claims-for-alexs-properties/) |
 | [Murdaugh Murders: The Hollywood Feeding Frenzy Has Begun](https://www.fitsnews.com/2021/09/09/murdaugh-murders-the-hollywood-feeding-frenzy-has-begun/) |
-|  **September 10, 2021**|
+| **September 10, 2021**|
 | [Murdaugh Murders: South Carolina Attorney General Will Handle Prosecutions, Sources Say](https://www.fitsnews.com/2021/09/10/murdaugh-murders-south-carolina-attorney-general-will-handle-prosecutions-sources-say/) |
 | [Murdaugh Murders: Helicopter Dispatched To Alex Murdaugh Shooting Before Sheriff’s Office](https://www.fitsnews.com/2021/09/10/murdaugh-murders-helicopter-dispatched-to-alex-murdaugh-shooting-before-sheriffs-office/) |
 | **September 12, 2021**|
@@ -271,7 +271,7 @@
 | [Murdaugh Civil Case: Journalist Refutes Claim She Paid For Confidential Court Documents](https://www.fitsnews.com/2021/10/05/murdaugh-civil-case-journalist-refutes-claim-she-paid-for-confidential-court-documents/) |
 | [Attorneys seek to question SC judge about millions meant for Murdaugh housekeeper’s sons](https://www.postandcourier.com/murdaugh-updates/attorneys-seek-to-question-sc-judge-about-millions-meant-for-murdaugh-housekeepers-sons/article_bfdcda0c-25ff-11ec-8969-cbc4be730197.html) |
 | [Murdaugh Civil Case: Journalist Refutes Claim She Paid For Confidential Court Documents](https://www.fitsnews.com/2021/10/05/murdaugh-civil-case-journalist-refutes-claim-she-paid-for-confidential-court-documents/) |
-| l[Murdaugh Law Firm Was Involved In Fraudulent Satterfield Settlement, Documents Show](https://www.fitsnews.com/2021/10/05/murdaugh-law-firm-was-involved-in-fraudulent-satterfield-settlement-motion-says/) |
+| [Murdaugh Law Firm Was Involved In Fraudulent Satterfield Settlement, Documents Show](https://www.fitsnews.com/2021/10/05/murdaugh-law-firm-was-involved-in-fraudulent-satterfield-settlement-motion-says/) |
 |  **October 6, 2021**|
 | [Murdaugh Murders Saga: Now Alex Murdaugh’s Former Law Firm Is Suing Him, Too](https://www.fitsnews.com/2021/10/06/murdaugh-murders-saga-now-alex-murdaughs-former-law-firm-is-suing-him-too/) |
 | [Chronicling the history of the Murdaughs in SC from 1910 to now](https://www.postandcourier.com/murdaugh-updates/chronicling-the-history-of-the-murdaughs-in-sc-from-1910-to-now/article_0205d56e-2187-11ec-ac8f-f34698144836.html) |
@@ -315,7 +315,6 @@
 | [Murdaugh Murders Saga: ‘Murdaughs In Vegas’](https://www.fitsnews.com/2021/10/20/murdaugh-murders-saga-murdaughs-in-vegas/) |
 | [SLED releases 911 calls from Alex Murdaugh’s shooting](https://www.postandcourier.com/murdaugh-updates/sled-releases-911-calls-from-alex-murdaughs-shooting/article_5666716a-3355-11ec-8d7e-83fa28c8f991.html) |
 | **October 22, 2021** |
-| [Attorneys File ‘Bombshell’ Motions To Lock Up And Recover Alex and Buster Murdaugh’s Assets](https://www.fitsnews.com/2021/10/22/murdaugh-murders-attorneys-file-bombshell-motions-to-lock-up-and-recover-alex-and-busters-assets/) |
 | [Attorneys File ‘Bombshell’ Motions To Lock Up And Recover Alex and Buster Murdaugh’s Assets](https://www.fitsnews.com/2021/10/22/murdaugh-murders-attorneys-file-bombshell-motions-to-lock-up-and-recover-alex-and-busters-assets/) |
 | [Murdaugh Murders: Investigators Release 911 Calls From Roadside Shooting Incident](https://www.fitsnews.com/2021/10/22/murdaugh-murders-investigators-release-911-calls-from-roadside-shooting-incident/) |
 | **October 25, 2021** |
@@ -718,7 +717,7 @@
 | [Russell Laffitte Federal Hearing: ’He Doesn’t Think He Committed A Crime’](https://www.fitsnews.com/2022/07/27/russell-laffitte-federal-hearing-he-doesnt-think-he-committed-a-crime/) |
 | **July 28, 2022**|
 | [Column: Don’t hide evidence in Murdaugh murder case if you want public trust in justice](https://www.postandcourier.com/aikenstandard/opinion/columns/column-don-t-hide-evidence-in-murdaugh-murder-case-if-you-want-public-trust-in/article_3f66def2-0ae4-11ed-98a2-6b7714895808.html) |
-| **Jul 29, 2022**|
+| **July 29, 2022**|
 | [Do defendants like Alex Murdaugh get the death penalty? SC will soon find out.](https://www.postandcourier.com/murdaugh-updates/do-defendants-like-alex-murdaugh-get-the-death-penalty-sc-will-soon-find-out/article_91e48ab4-0934-11ed-bbfc-f738f80d705c.html) |
 | **August 1, 2022**|
 | [Editorial: A reminder of SC legislators’ inappropriate perk, courtesy of Alex Murdaugh](https://www.postandcourier.com/opinion/editorials/editorial-a-reminder-of-sc-legislators-inappropriate-perk-courtesy-of-alex-murdaugh/article_30ddc9d8-0ed4-11ed-b7db-53cb48f585ef.html) |
@@ -764,7 +763,7 @@
 | **August 18, 2022**|
 | [Lindsey Edwards: SLED Interviews Former Sex Worker In Connection With ‘Murdaugh Murders’ Investigation](https://www.fitsnews.com/2022/08/18/lindsey-edwards-sled-interviews-former-sex-worker-in-connection-with-murdaugh-murders-investigation/) |
 | [Murdaugh Civil Case: Attorney For Mallory Beach’s Family Moves To Quash Subpoena](https://www.fitsnews.com/2022/08/18/murdaugh-civil-case-attorney-for-mallory-beachs-family-moves-to-quash-subpoena/) |
-| South Carolina Minority Leader Hires ‘Murdaugh Murders’ Prosecutor](https://www.fitsnews.com/2022/08/18/south-carolina-minority-leader-hires-murdaugh-murders-prosecutor/) |
+| [South Carolina Minority Leader Hires ‘Murdaugh Murders’ Prosecutor](https://www.fitsnews.com/2022/08/18/south-carolina-minority-leader-hires-murdaugh-murders-prosecutor/) |
 | **August 19, 2022**|
 | [Another Round Of Financial Crime Indictments For Alex Murdaugh](https://www.fitsnews.com/2022/08/19/another-round-of-financial-crime-indictments-for-alex-murdaugh/) |
 | Attorney General Alan Wilson announces State Grand Jury issues new indictments against Richard Alexander Murdaugh |
@@ -774,7 +773,7 @@
 | [Murdaugh Saga: Greg Parker Has Another New Lawyer](https://www.fitsnews.com/2022/08/20/murdaugh-saga-greg-parker-has-another-new-lawyer/) |
 | **August 22, 2022**|
 | [Murdaugh attorneys double down on leak claims in double-murder case, citing phone video](https://www.postandcourier.com/murdaugh-updates/murdaugh-attorneys-double-down-on-leak-claims-in-double-murder-case-citing-phone-video/article_748c5016-2241-11ed-8b4c-b734d0b5212b.html) |
-| 0[Murdaugh Murders Saga: Dick Harpootlian Subpoenas SLED In Murder Investigation](https://www.fitsnews.com/2022/08/22/murdaugh-murders-dick-harpootlian-says-south-carolina-prosecutors-selectively-leaked-information-about-evidence/) |
+| [Murdaugh Murders Saga: Dick Harpootlian Subpoenas SLED In Murder Investigation](https://www.fitsnews.com/2022/08/22/murdaugh-murders-dick-harpootlian-says-south-carolina-prosecutors-selectively-leaked-information-about-evidence/) |
 | **August 24, 2022**|
 | [Alleged Murdaugh accomplice Russell Laffitte appears in court on new fraud charge](https://www.postandcourier.com/murdaugh-updates/alleged-murdaugh-accomplice-russell-laffitte-appears-in-court-on-new-fraud-charge/article_b50b7c20-23ae-11ed-a81e-db7450b9c1cd.html) |
 | [Sisters sue Palmetto State Bank, former CEO over looted trust account](https://www.postandcourier.com/murdaugh-updates/sisters-sue-palmetto-state-bank-former-ceo-over-looted-trust-account/article_29b39a94-1cc0-11ed-93c6-4b6af0f34907.html) |
@@ -784,14 +783,12 @@
 | [Murdaugh Murders Saga: What Does Dick Harpootlian Have Up His Sleeve?](https://www.fitsnews.com/2022/08/27/murdaugh-murders-saga-what-does-dick-harpootlian-have-up-his-sleeve/) |
 | **August 29, 2022**|
 | [Sparks fly over Murdaugh murder evidence as prosecutors, defense attorneys spar in court](https://www.postandcourier.com/murdaugh-updates/sparks-fly-over-murdaugh-murder-evidence-as-prosecutors-defense-attorneys-spar-in-court/article_f2d948ce-249f-11ed-9b75-8f49b959577d.html) |
-| **August 29, 2022**|
 | [Murdaugh Murders Saga: Fireworks In Court After Dick Harpootlian Drops Bombshell Motion](https://www.fitsnews.com/2022/08/29/murdaugh-murders-saga-fireworks-in-court-after-dick-harpootlian-drops-bombshell-motion/) |
 | [‘Murdaugh Murders’ Courtroom Drama – Full 8/29/2022 Hearing](https://www.fitsnews.com/2022/08/29/murdaugh-murders-courtroom-drama-full-8-29-2022-hearing/) |
 | **August 30, 2022**|
 | [‘Murdaugh Murders’ Saga: Lowcountry Search Tied To Double Homicide Investigation](https://www.fitsnews.com/2022/08/30/murdaugh-murders-saga-lowcountry-search-tied-to-double-homicide-investigation/) |
 | **August 31, 2022**|
 | [Murdaugh Murders Saga: Update On Law Enforcement’s Lowcountry River Search](https://www.fitsnews.com/2022/08/31/murdaugh-murders-saga-update-on-law-enforcements-lowcountry-river-search/) |
-| **August 31, 2022**|
 | [‘Murdaugh Murders’ Boat Crash Lawsuit: Mediation Hearing ‘Fails Spectacularly’](https://www.fitsnews.com/2022/08/31/murdaugh-murders-boat-crash-lawsuit-mediation-hearing-fails-spectacularly/) |
 | **September 2, 2022**|
 | [Murdaugh cases overseen by SC Judge Clifton Newman, who rose from segregated schools to bench](https://www.postandcourier.com/murdaugh-updates/murdaugh-cases-overseen-by-sc-judge-clifton-newman-who-rose-from-segregated-schools-to-bench/article_5362907c-285d-11ed-b179-b342b724b1dd.html) |
@@ -856,7 +853,6 @@
 | **October 13, 2022**|
 | [Murdaugh murder trial date set](https://www.scag.gov/about-the-office/news/murdaugh-murder-trial-date-set/)|
 |(COLUMBIA, S.C.) - Attorney General Alan Wilson announces that the murder trial of Richard Alexander Murdaugh has been scheduled to start on January 23, 2023, and last until February 10. Judge Clifton Newman will preside over the trial, which will take place at the Colleton County Courthouse. |
-| **October 13, 2022**|
 | [Alex Murdaugh double murder trial set for January 2023](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-double-murder-trial-set-for-january-2023/article_11f51db2-3901-11ed-bf05-6f41ceccf8ec.html) |
 | [‘Murdaugh Murders’ Saga: Date Set For Double Homicide Trial](https://www.fitsnews.com/2022/10/13/murdaugh-murders-saga-date-set-for-double-homicide-trial/) |
 | **October 14, 2022**|
@@ -964,7 +960,7 @@
 | [Russell Laffitte maintains he was a pawn in Murdaugh scheme before jury decides ex-banker’s fate](https://www.postandcourier.com/murdaugh-updates/russell-laffitte-maintains-he-was-a-pawn-in-murdaugh-scheme-before-jury-decides-ex-banker/article_f481f5d4-6754-11ed-a954-d3b8f11da66b.html) |
 | [Russell Laffitte retakes witness stand as his federal trial nears conclusion](https://www.postandcourier.com/murdaugh-updates/russell-laffitte-retakes-witness-stand-as-his-federal-trial-nears-conclusion/article_e7a7f1c2-6751-11ed-9360-b774d92cefe2.html) |
 | [‘Murdaugh Murders’ Saga: Buster Murdaugh Speaks](https://www.fitsnews.com/2022/11/21/murdaugh-murders-saga-buster-murdaugh-speaks/) |
-| **Nov 22, 2022**|
+| **November 22, 2022**|
 | [Ex-Murdaugh banker Russell Laffitte found guilty on all counts in federal fraud trial](https://www.postandcourier.com/murdaugh-updates/ex-murdaugh-banker-russell-laffitte-found-guilty-on-all-counts-in-federal-fraud-trial/article_a85913ba-6a72-11ed-a1ab-cb922d6ceca4.html) |
 | [Murdaugh, Parker’s January boat crash trial delayed due to murder case](https://www.postandcourier.com/murdaugh-updates/murdaugh-parkers-january-boat-crash-trial-delayed-due-to-murder-case/article_2710c74c-6a92-11ed-b348-4b4922f2d3d7.html) |
 | [Understand Murdaugh: Catching up on the murder saga](https://www.postandcourier.com/understandsc/understand-murdaugh-catching-up-on-the-murder-saga/article_8f29deec-6a95-11ed-83df-c7a960be5b0e.html) |
