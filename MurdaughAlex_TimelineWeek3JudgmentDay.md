@@ -37,6 +37,27 @@ Defense attorneys contend the financial evidence is prejudicial and unrelated to
 |Waters, the lead prosecutor, said her testimony established a connection. Unable to agree on what Smith said, Harpootlian suggested Newman pull a transcript of her testimony.|
 |The issue is likely to be discussed further Feb. 7, when the SLED lab analyst who ran gunshot residue tests is expected to testify.|
 | **February 7, 2023**|
+| [Walterboro is about to become a media circus. Here’s what the town is really like.](https://www.postandcourier.com/archives/murdaugh/walterboro-is-about-to-become-a-media-circus-heres-what-the-town-is-really-like/article_947e7d20-a72c-11ed-8ce5-87324ae54806.html) |
+| When my editors asked me to write about Alex Murdaugh’s hometown of Hampton, South Carolina, they warned me that few locals wanted to talk to the press.|
+|They were right.|
+|In the intense interest in the small town after Maggie and Paul Murdaugh were killed, and then again after Alex Murdaugh was arrested for their deaths, residents mostly wanted to distance themselves from the story.|
+|So when my editors asked me if I’d do a story about Walterboro, the small town where Alex Murdaugh’s double murder trial will be held, I expected the same kind of difficulty finding someone willing to talk on the record.|
+|Not so.|
+|The officials, shopkeepers and passersby I spoke to were happy to discuss what they were doing to prepare for the thousands of strangers who will soon flood their streets.|
+|Some saw the high-profile trial as a business opportunity, some saw it as a nuisance and some saw it as an unfortunate situation that has landed in Walterboro, the county seat for Colleton, where the murders took place.|
+|But none saw it as a threat.|
+|The different emotional reaction between folks in Hampton and those in Walterboro is what really jumped out at me. I didn’t perceive fear in Walterboro the way I did in Hampton.|
+|Then I encountered the exception that proved the rule.|
+|My interviews done and a storm rolling in, I was just about to jump in my car when I saw a friendly-seeming man in an apron come out of a florist’s shop. He looked to be the owner of the small business, so I asked him how he was preparing for the upcoming crowd.|
+|He said he wasn’t doing anything. *“I don’t think anybody’s going to be needing flowers,”* he said.|
+|Then he told me something totally unexpected: He lived on Moselle Road, just down the way from the Murdaughs’ hunting estate.|
+|He remembered the night Maggie and Paul Murdaugh died. He’d heard what he called *“a wall of sirens”* in the dark night.|
+|Not long after, police came knocking on his door.|
+|They hoped he’d have a surveillance camera that might’ve recorded what happened.|
+|As it turned out, he did have such a camera … but it had been turned off, and so he couldn’t provide information.|
+|Now, here’s what really got me. His reaction wasn’t disappointment that he couldn’t help identify the perpetrator, but relief.|
+| *“I’d be killed,”* he said.|
+|In that instance, he looked less like the welcoming hosts in Walterboro, and more like the folks I’d talked to in Hampton, strained and uncomfortable, backing away.|
 | [Will the feds charge Murdaugh?](https://www.postandcourier.com/archives/murdaugh/will-the-feds-charge-murdaugh/article_f8d564ec-a72b-11ed-955e-33292c5ac485.html) |
 |Over the past 18 months, state investigators have indicted disgraced former attorney Alex Murdaugh 19 times. The state grand jury has leveled nearly 100 criminal charges against him, alleging everything from insurance fraud and theft to money laundering and drug trafficking.|
 |But to date, federal prosecutors haven’t lodged a single charge against the once-respected Hampton lawyer, even though he played a central role in the federal fraud trial of former Palmetto State Bank CEO Russell Laffitte in November.|
