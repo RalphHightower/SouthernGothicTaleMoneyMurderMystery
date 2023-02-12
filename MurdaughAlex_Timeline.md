@@ -1240,7 +1240,11 @@ Altogether, through 19 indictments containing 99 charges against Murdaugh, the S
 | JANUARY 31ST, 2023 | 22 | [Debate over whether Alex Murdaugh confessed continues](https://understand-murdaugh.simplecast.com/episodes/understand-murdaugh-debate-over-whether-alex-murdaugh-confessed-continues) |
 | FEBRUARY 1ST, 2023 | 23 | [Family friends identify Alex Murdaugh's voice in video shot before murders](https://understand-murdaugh.simplecast.com/episodes/family-friends-identify-alex-murdaughs-voice-in-video-shot-before-murders) |
 | FEBRUARY 2ND, 2023 | 24 | [Alex Murdaugh's colleagues detail his alleged financial crimes to an empty jury box](https://understand-murdaugh.simplecast.com/episodes/alex-murdaughs-colleagues-detail-his-alleged-financial-crimes-to-an-empty-jury-box) |
-
+| FEBRUARY 6TH, 2023 | 26 | [Prosecutors get judge's OK to introduce alleged financial crimes](https://understand-murdaugh.simplecast.com/episodes/prosecutors-get-judges-ok-to-introduce-alleged-financial-crimes) |
+| FEBRUARY 7TH, 2023 | 27 | [Gunshot residue found on jacket Alex Murdaugh allegedly stashed after wife, son were slain](https://understand-murdaugh.simplecast.com/episodes/gunshot-residue-found-on-jacket-alex-murdaugh-allegedly-stashed-after-wife-son-were-slain) |
+| FEBRUARY 8TH, 2023 | 28 | [Jurors hear about gunshot residue, SUV data despite bomb threat disruption](https://understand-murdaugh.simplecast.com/episodes/jurors-hear-about-gunshot-residue-suv-data-despite-bomb-threat-disruption) |
+| FEBRUARY 9TH, 2023 | 29 [Jurors hear evidence of Murdaugh's finacial schemes and thefts](https://understand-murdaugh.simplecast.com/episodes/jurors-hear-evidence-of-murdaughs-finacial-schemes-and-thefts) |
+| FEBRUARY 10TH, 2023 | 30 | [Murdaugh family housekeeper takes the stand](https://understand-murdaugh.simplecast.com/episodes/murdau|gh-family-housekeeper-takes-the-stand) 
 
 <hr>
 
