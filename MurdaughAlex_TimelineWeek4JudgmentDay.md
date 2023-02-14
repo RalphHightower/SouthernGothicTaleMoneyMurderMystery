@@ -33,7 +33,7 @@ They have lined up outside the Colleton County courthouse for hours each morning
 |Jurors were clearly impacted by what they saw – appearing extremely shaken as the graphic crime scene images and autopsy photos were shown. One juror cupped their hand over their mouth in horror during Riemer’s presentation. Another appeared to be wiping away a tear as an image of Maggie Murdaugh’s exit wounds was depicted on one of the two screens positioned in front of the jury.|
 |As for Alex Murdaugh, he teared up on multiple occasions as the graphic testimony continued – as did several members of his family seated several rows behind him in court. At one point, Murdaugh appeared to be ripping a tissue in his hands and then attempting to press it back together. He later repeated this motion with a yellow highlighter – removing its cap and then placing it back over the marker. At another point, Murdaugh stared blankly ahead – rocking and nodding his head in what has become a signature response to particularly jarring testimony.|
 |Riemer is scheduled to be on the stand for a *“lengthy”* cross-examination from Harpootlian when court reconvenes on Tuesday morning at 9:30 a.m. EST.|
-| **February 14 2023** |
+| **February 14, 2023** |
 | [LIVE FEED – ‘Murdaugh Murders’ Trial: Day Seventeen](https://www.fitsnews.com/2023/02/14/live-feed-murdaugh-murders-trial-day-seventeen/) |
 |News and notes from South Carolina’s ‘Trial of the Century.’|
 | [Live: Pathologist testifies in Alex Murdaugh double murder trial](https://www.postandcourier.com/murdaugh-updates/live-pathologist-testifies-in-alex-murdaugh-double-murder-trial/article_a54eb48a-ab9b-11ed-b39c-bf4ad3aa5534.html) |
