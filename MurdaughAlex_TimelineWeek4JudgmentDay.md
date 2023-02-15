@@ -68,4 +68,8 @@ The  jarring admission – which prosecutors sought to include as a counter to t
 | *“Pills – prescription painkillers,”* Proctor responded. *”If there were pills in the home his dad wasn’t supposed to be taking it was Paul’s job to take them.”* |
 |Up to this point, there has been no indication drugs played a role in Murdaugh’s alleged motive in this case. In fact, the state has focused exclusively (and exhaustively) on the looming threat of exposure for his financial crimes as the reason he allegedly killed his wife and son. Is this a last-minute narrative shift? We shall see …|
 |Testimony is scheduled to resume on Wednesday at 10:30 a.m. EST after Newman hears from both prosecutors and defense attorneys regarding the admissibility of evidence and testimony related to the roadside shooting.|
+| **February 15, 2023** |
+| [LIVE FEED – ‘Murdaugh Murders’ Trial: Day Eighteen](https://www.fitsnews.com/2023/02/15/live-feed-murdaugh-murders-trial-day-eighteen/) |
+|News and notes from South Carolina’s ‘Trial of the Century.’|
+|[Live: Judge rules Alex Murdaugh’s roadside shooting inadmissible in double murder trial](https://www.postandcourier.com/murdaugh-updates/live-judge-rules-alex-murdaughs-roadside-shooting-inadmissible-in-double-murder-trial/article_c92b3162-ab9b-11ed-8152-a3f7477acc73.html) |
 
