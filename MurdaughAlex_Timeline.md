@@ -566,8 +566,8 @@
 | [Parker’s Attorneys Deny Objecting To Confession Of Judgment, Say Satterfield Attorney Threatened Them](https://www.fitsnews.com/2022/04/05/parkers-attorneys-deny-objecting-to-confession-of-judgment-say-satterfield-attorney-threatened-them/) |
 | **April 7, 2022**|
 | [Alex Murdaugh Sent Clients To Palmetto State Bank For High-Interest, Pre-Settlement Loans, Lawyers Say](https://www.fitsnews.com/2022/04/07/alex-murdaugh-sent-clients-to-palmetto-state-bank-for-high-interest-pre-settlement-loans-lawyers-say/) |
-| **April 8, 2022**|
-| [Maggie Murdaugh’s Edisto House Will Be Going On The Market Soon](https://www.fitsnews.com/2022/04/08/maggie-murdaughs-edisto-house-will-be-going-on-the-market-soon/) |
+| **April 8, 2022[^8]**|
+| [Maggie Murdaugh’s Edisto House Will Be Going On The Market Soon](https://www.fitsnews.com/2022/04/08/maggie-murdaughs-edisto-house-will-be-going-on-the-market-soon/)[^8] |
 | **April 11, 2022**|
 | [‘Murdaugh Murders’ Boat Crash Case: Attorney Explores The Maritime Law Angle](https://www.fitsnews.com/2022/04/11/murdaugh-murders-boat-crash-case-attorney-explores-the-maritime-law-angle/) |
 | **April 12, 2022**|
@@ -943,8 +943,8 @@ For example, a citizens group is demanding to know where over $5 million raised 
 | [‘Murdaugh Murders’ Saga: Inside The Checks To Curtis Eddie Smith](https://www.fitsnews.com/2022/11/02/murdaugh-murders-saga-inside-the-checks-to-curtis-eddie-smith/) |
 | **November 3, 2022**|
 | [‘Murdaugh Murders’ Saga: HBO Documentary Includes Confidential Hospital Videos](https://www.fitsnews.com/2022/11/03/murdaugh-murders-saga-hbo-documentary-includes-confidential-hospital-videos/) |
-| **[November 4, 2022](https://www.nbc.com/dateline/video/dark-waters/9000267436)**|
-| [NBC Dateline, "Dark Waters"](https://www.nbc.com/dateline/video/dark-waters/9000267436) Craig Melvin[^5] reveals surprising and exclusive new details about the deaths and legal cases surrounding Alex Murdaugh, the South Carolina lawyer accused of killing his wife and son last year. **Available until 09/17/23** |
+| **[November 4, 2022](https://www.nbc.com/dateline/video/dark-waters/9000267436)** |
+| [NBC Dateline, "Dark Waters"](https://www.nbc.com/dateline/video/dark-waters/9000267436) Craig Melvin[^3] reveals surprising and exclusive new details about the deaths and legal cases surrounding Alex Murdaugh, the South Carolina lawyer accused of killing his wife and son last year. **Available until 09/17/23** |
 | [‘Murdaugh Murders’ Saga: Russell Laffitte Breaks Silence In Interview With ‘Distant Relative’](https://www.fitsnews.com/2022/11/04/murdaugh-murders-saga-russell-laffitte-breaks-silence-in-interview-with-distant-relative/) |
 | **November 5, 2022 |
 |[Ex-SC banker Russell Laffitte set to face trial in first Murdaugh case to be heard by jury](https://www.postandcourier.com/murdaugh-updates/ex-sc-banker-russell-laffitte-set-to-face-trial-in-first-murdaugh-case-to-be/article_fc914238-5bb6-11ed-ba1e-a7e71f677bf9.html) |
@@ -1243,8 +1243,8 @@ Altogether, through 19 indictments containing 99 charges against Murdaugh, the S
 | FEBRUARY 6TH, 2023 | 26 | [Prosecutors get judge's OK to introduce alleged financial crimes](https://understand-murdaugh.simplecast.com/episodes/prosecutors-get-judges-ok-to-introduce-alleged-financial-crimes) |
 | FEBRUARY 7TH, 2023 | 27 | [Gunshot residue found on jacket Alex Murdaugh allegedly stashed after wife, son were slain](https://understand-murdaugh.simplecast.com/episodes/gunshot-residue-found-on-jacket-alex-murdaugh-allegedly-stashed-after-wife-son-were-slain) |
 | FEBRUARY 8TH, 2023 | 28 | [Jurors hear about gunshot residue, SUV data despite bomb threat disruption](https://understand-murdaugh.simplecast.com/episodes/jurors-hear-about-gunshot-residue-suv-data-despite-bomb-threat-disruption) |
-| FEBRUARY 9TH, 2023 | 29 [Jurors hear evidence of Murdaugh's finacial schemes and thefts](https://understand-murdaugh.simplecast.com/episodes/jurors-hear-evidence-of-murdaughs-finacial-schemes-and-thefts) |
-| FEBRUARY 10TH, 2023 | 30 | [Murdaugh family housekeeper takes the stand](https://understand-murdaugh.simplecast.com/episodes/murdau|gh-family-housekeeper-takes-the-stand) 
+| FEBRUARY 9TH, 2023 | 29 | [Jurors hear evidence of Murdaugh's finacial schemes and thefts](https://understand-murdaugh.simplecast.com/episodes/jurors-hear-evidence-of-murdaughs-finacial-schemes-and-thefts) |
+| FEBRUARY 10TH, 2023 | 30 | [Murdaugh family housekeeper takes the stand](https://understand-murdaugh.simplecast.com/episodes/murdaugh-family-housekeeper-takes-the-stand) |
 
 <hr>
 
@@ -1307,3 +1307,4 @@ His downward spiral has ensnared a half-dozen alleged accomplices, spawned a web
 [^5]: Rule 404(b) became an issue of Murdaugh’s trial, February 2, 2023 concerning Murdaugh’s embezzlement from clients' settlements and the law firm. I  am not a lawyer, but his son, Paul, was a legal and financial with the boating under the influence when the boat that he was piloting crashed into a bridge piling that resulted in numerous injuries and the fatality of Mallory Beach. His wife, Maggie, was considering divorce according to a People magazine article. During Laffitte’s trial, it was revealed that Murdaugh’s banking account had frequent overdrafts by hundreds of thousands of dollars. Maggie and Paul would reveal that Murdaugh’s fortune was really a financial house of cards,
 [^6]: Divorce proceedings would reveal that Alex Murdaugh *"wealth"* was a financial house of cards. 
 [^7]: Paul was a legal and financial liability because of his boating under the influence that resulted in numerous injuries and the fatality of Mallory Beach. A wrongful death lawsuit would also send Murdaugh’s financial house of cards crashing.
+[^8]: [3606 Big Bay Drive, Edisto Beach, South Carolina](https://www.zillow.com/homedetails/3606-Big-Bay-Dr-Edisto-Island-SC-29438/75230676_zpid/?utm_campaign=androidappmessage&utm_medium=referral&utm_source=txtshare)
