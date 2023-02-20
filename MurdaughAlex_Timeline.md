@@ -412,7 +412,7 @@
 | [What The Public Wasn’t Told About Alex Murdaugh’s Bond Hearing … But Should Have Been](https://www.fitsnews.com/2021/12/14/what-the-public-wasnt-told-about-alex-murdaughs-bond-hearing-but-should-have-been/) |
 |  **December 16, 2021**|
 | [Mallory Beach Case: Reporter Vicky Ward Says Video With Gruesome Photos Was Made Public By Accident](https://www.fitsnews.com/2021/12/16/mallory-beach-case-reporter-vicky-ward-says-video-with-gruesome-photos-was-made-public-by-accident/) |
-|  )[Murdaugh Murders: SLED Leading Public Corruption Investigation Tied To Disgraced Attorney](https://www.fitsnews.com/2021/12/16/murdaugh-murders-sled-leading-public-corruption-investigation-tied-to-disgraced-attorney/) |
+| m[Murdaugh Murders: SLED Leading Public Corruption Investigation Tied To Disgraced Attorney](https://www.fitsnews.com/2021/12/16/murdaugh-murders-sled-leading-public-corruption-investigation-tied-to-disgraced-attorney/) |
 |  **December 17, 2021**|
 | [‘Murdaugh Literally PMPED People’s Pockets,’ New Attorney Representing Victim Says](https://www.fitsnews.com/2021/12/17/murdaugh-literally-pmped-peoples-pockets-new-attorney-representing-victim-says/) |
 | **December 21, 2021** |
