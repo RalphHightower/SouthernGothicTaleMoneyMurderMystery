@@ -1211,39 +1211,40 @@ Altogether, through 19 indictments containing 99 charges against Murdaugh, the S
 
 ### Understanding Murdaugh Podcasts 
 
-| Date | Episode | [Post and Courier: Understanding Murdaugh Podcasts](https://understand-murdaugh.simplecast.com/episodes)[^4] |
-|------|-----|-----|
-| November 2, 2022 | 01 | [Introducing: Understand Murdaugh](https://understand-murdaugh.simplecast.com/episodes/introducing-understand-murdaugh-Wt0R6VKM) |
-| November 7, 2022 | 02 | [Follow the money: Murdaugh banker Russell Laffitte goes to trial](https://understand-murdaugh.simplecast.com/episodes/follow-the-money-murdaugh-banker-russell-laffitte-goes-to-trial) |
-| November 15, 2022 | 03 | [Understand Murdaugh: A decision on the death penalty looms large](https://understand-murdaugh.simplecast.com/episodes/a-decision-on-the-death-penalty-looms-large) |
-| November 22, 2022 | 04 | [Catching up on the Murdaugh saga: Part 1](https://understand-murdaugh.simplecast.com/episodes/catching-up-on-the-murdaugh-saga-part-1) |
-| November 23, 2022 | 05 | [Catching up on the Murdaugh saga: Part 2](https://understand-murdaugh.simplecast.com/episodes/catching-up-on-the-murdaugh-saga-part-2) |
-| November 29, 2022 | 06 | [What’s next after trial of Murdaugh accomplice, Hampton banker Russell Laffitte?](https://understand-murdaugh.simplecast.com/episodes/whats-next-after-trial-of-murdaugh-accomplice-hampton-banker-russell-laffitte) |
-| December 6, 2022 | 07 | [Understand Murdaugh: Reader Mailbag](https://understand-murdaugh.simplecast.com/episodes/understand-murdaugh-reader-mailbag) |
-| December 14, 2022 | 08 | [Blood spatter and murder motive: Latest Murdaugh hearing produces fireworks](https://understand-murdaugh.simplecast.com/episodes/blood-spatter-and-murder-motive-latest-murdaugh-hearing-produces-fireworks) |
-| December 20, 2022 | 09 | [Murdaugh country: Crime and redemption in Hampton, SC](https://understand-murdaugh.simplecast.com/episodes/murdaugh-country-crime-and-redemption-in-hampton-sc) |
-| December 22, 2022 | 10 | [Creighton Waters, the Murdaugh prosecutor who toppled a South Carolina legal dynasty](https://understand-murdaugh.simplecast.com/episodes/creighton-waters-the-murdaugh-prosecutor-who-toppled-a-south-carolina-legal-dynasty) |
-| December 27, 2022 | 11 | [The Jailhouse Tapes](https://understand-murdaugh.simplecast.com/episodes/the-jailhouse-tapes) |
-| January 3, 2023 | 12 | [Murdaugh catchup: Tax evasion, death penalty, Laffitte appeal, and no federal charges for Murdaugh?](https://understand-murdaugh.simplecast.com/episodes/murdaugh-catchup-tax-evasion-death-penalty-laffitte-appeal-and-no-federal-charges-for-murdaugh) |
-| JANUARY 10TH, 2023 | 13 | [The Murdaughs' estate and its mysterious buyer](https://understand-murdaugh.simplecast.com/episodes/the-murdaughs-estate-and-its-mysterious-buyer) |
-| JANUARY 17TH, 2023 | 14 | [Who is Curtis Smith? What role might he play in the Alex Murdaugh murder trial?](https://understand-murdaugh.simplecast.com/episodes/who-is-curtis-smith-what-role-might-he-play-in-the-alex-murdaugh-murder-trial) |
-| JANUARY 20TH, 2023  | 15 | [Meet Judge Clifton Newman, who will oversee Alex Murdaugh’s murder trial](https://understand-murdaugh.simplecast.com/episodes/meet-judge-clifton-newman-who-will-oversee-alex-murdaughs-murder-trial) |
-| JANUARY 23RD, 2023 | BONUS | [Beyond The Headlines: Alex Murdaugh goes to trial (Bonus)](https://understand-murdaugh.simplecast.com/episodes/beyond-the-headlines-alex-murdaugh-goes-to-trial-bonus) |
-| January 24, 2023 | 16 | [Revelations about a potential murder weapon, and jury selection continues](https://understand-murdaugh.simplecast.com/episodes/revelations-about-a-potential-murder-weapon-and-more-jury-selection) |
-| January 25, 2023 | 17 | [Alex Murdaugh’s defense attorneys: Who are Dick Harpootlian and Jim Griffin](https://understand-murdaugh.simplecast.com/episodes/alex-murdaughs-defense-attorneys-who-are-dick-harpootlian-and-jim-griffin) |
-| JANUARY 25TH, 2023 | 18 | [Murder trial officially begins with opening statements](https://understand-murdaugh.simplecast.com/episodes/murder-trial-officially-begins-with-opening-statements) |
-| JANUARY 26TH, 2023 | 19 | [Understand Murdaugh: First witnesses in Alex Murdaugh murder trial take the stand](https://understand-murdaugh.simplecast.com/episodes/understand-murdaugh-first-witnesses-in-alex-murdaugh-murder-trial-take-the-stand) |
-| JANUARY 27TH, 2023 | Bonus | [Food trucks pop up in Walterboro as Murdaugh trial begins](https://understand-murdaugh.simplecast.com/episodes/food-trucks-pop-up-in-walterboro-as-murdaugh-trial-begins) |
-| JANUARY 27TH, 2023 | 20 | [Understand Murdaugh: Footage from Alex Murdaugh's first interview with investigators](https://understand-murdaugh.simplecast.com/episodes/understand-murdaugh-footage-from-alex-murdaugh-interview) |
-| JANUARY 30TH, 2023 | 21 | [Paul Murdaugh's final texts revealed and Alex's second SLED interview](https://understand-murdaugh.simplecast.com/episodes/paul-murdaughs-final-texts-revealed-and-alexs-second-sled-interview) |
-| JANUARY 31ST, 2023 | 22 | [Debate over whether Alex Murdaugh confessed continues](https://understand-murdaugh.simplecast.com/episodes/understand-murdaugh-debate-over-whether-alex-murdaugh-confessed-continues) |
-| FEBRUARY 1ST, 2023 | 23 | [Family friends identify Alex Murdaugh's voice in video shot before murders](https://understand-murdaugh.simplecast.com/episodes/family-friends-identify-alex-murdaughs-voice-in-video-shot-before-murders) |
-| FEBRUARY 2ND, 2023 | 24 | [Alex Murdaugh's colleagues detail his alleged financial crimes to an empty jury box](https://understand-murdaugh.simplecast.com/episodes/alex-murdaughs-colleagues-detail-his-alleged-financial-crimes-to-an-empty-jury-box) |
-| FEBRUARY 6TH, 2023 | 26 | [Prosecutors get judge's OK to introduce alleged financial crimes](https://understand-murdaugh.simplecast.com/episodes/prosecutors-get-judges-ok-to-introduce-alleged-financial-crimes) |
-| FEBRUARY 7TH, 2023 | 27 | [Gunshot residue found on jacket Alex Murdaugh allegedly stashed after wife, son were slain](https://understand-murdaugh.simplecast.com/episodes/gunshot-residue-found-on-jacket-alex-murdaugh-allegedly-stashed-after-wife-son-were-slain) |
-| FEBRUARY 8TH, 2023 | 28 | [Jurors hear about gunshot residue, SUV data despite bomb threat disruption](https://understand-murdaugh.simplecast.com/episodes/jurors-hear-about-gunshot-residue-suv-data-despite-bomb-threat-disruption) |
-| FEBRUARY 9TH, 2023 | 29 | [Jurors hear evidence of Murdaugh's finacial schemes and thefts](https://understand-murdaugh.simplecast.com/episodes/jurors-hear-evidence-of-murdaughs-finacial-schemes-and-thefts) |
-| FEBRUARY 10TH, 2023 | 30 | [Murdaugh family housekeeper takes the stand](https://understand-murdaugh.simplecast.com/episodes/murdaugh-family-housekeeper-takes-the-stand) |
+| Date | Duration | Episode | [Post and Courier: Understanding Murdaugh Podcasts](https://understand-murdaugh.simplecast.com/episodes)[^4] |
+|------|-----|-----|----|
+| NOVEMBER 2ND, 2022 | 05:31 | E1 | [Introducing: Understand Murdaugh](https://understand-murdaugh.simplecast.com/episodes/introducing-understand-murdaugh-Wt0R6VKM) |
+| NOVEMBER 7TH, 2022 | 10:03 | E2 | [Follow the money: Murdaugh banker Russell Laffitte goes to trial](https://understand-murdaugh.simplecast.com/episodes/follow-the-money-murdaugh-banker-russell-laffitte-goes-to-trial) |
+| NOVEMBER 15TH, 2022 | 16:33 | E3 | [Understand Murdaugh: A decision on the death penalty looms large](https://understand-murdaugh.simplecast.com/episodes/a-decision-on-the-death-penalty-looms-large) |
+| NOVEMBER 22ND, 2022 | 19:04 | E4 | [Catching up on the Murdaugh saga: Part 1](https://understand-murdaugh.simplecast.com/episodes/catching-up-on-the-murdaugh-saga-part-1) |
+| NOVEMBER 23RD, 2022 | 19:28 | E5 | [Catching up on the Murdaugh saga: Part 2](https://understand-murdaugh.simplecast.com/episodes/catching-up-on-the-murdaugh-saga-part-2) |
+| NOVEMBER 29TH, 2022 | 13:53 | E6 | [What’s next after trial of Murdaugh accomplice, Hampton banker Russell Laffitte?](https://understand-murdaugh.simplecast.com/episodes/whats-next-after-trial-of-murdaugh-accomplice-hampton-banker-russell-laffitte) |
+| DECEMBER 6TH, 2022 | 13:10 | E7 | [Understand Murdaugh: Reader Mailbag](https://understand-murdaugh.simplecast.com/episodes/understand-murdaugh-reader-mailbag) |
+| DECEMBER 14TH, 2022 | 26:10 | E8 | [Blood spatter and murder motive: Latest Murdaugh hearing produces fireworks](https://understand-murdaugh.simplecast.com/episodes/blood-spatter-and-murder-motive-latest-murdaugh-hearing-produces-fireworks) |
+| DECEMBER 20TH, 2022 | 17:52 | E9 | [Murdaugh country: Crime and redemption in Hampton, SC](https://understand-murdaugh.simplecast.com/episodes/murdaugh-country-crime-and-redemption-in-hampton-sc) |
+| DECEMBER 22ND, 2022 | 22:56 | E10 | [Creighton Waters, the Murdaugh prosecutor who toppled a South Carolina legal dynasty](https://understand-murdaugh.simplecast.com/episodes/creighton-waters-the-murdaugh-prosecutor-who-toppled-a-south-carolina-legal-dynasty) |
+| DECEMBER 27TH, 2022 | 15:02 | E11 | [The Jailhouse Tapes](https://understand-murdaugh.simplecast.com/episodes/the-jailhouse-tapes) |
+| JANUARY 3RD, 2023 | 29:00 | E12 | [Murdaugh catchup: Tax evasion, death penalty, Laffitte appeal, and no federal charges for Murdaugh?](https://understand-murdaugh.simplecast.com/episodes/murdaugh-catchup-tax-evasion-death-penalty-laffitte-appeal-and-no-federal-charges-for-murdaugh) |
+| JANUARY 10TH, 2023 | 10:55 | E13 | [The Murdaughs' estate and its mysterious buyer](https://understand-murdaugh.simplecast.com/episodes/the-murdaughs-estate-and-its-mysterious-buyer) |
+| JANUARY 17TH, 2023 | 23:34 | E14 | [Who is Curtis Smith? What role might he play in the Alex Murdaugh murder trial?](https://understand-murdaugh.simplecast.com/episodes/who-is-curtis-smith-what-role-might-he-play-in-the-alex-murdaugh-murder-trial) |
+| JANUARY 20TH, 2023 | 22:03 | E15 | [Meet Judge Clifton Newman, who will oversee Alex Murdaugh’s murder trial](https://understand-murdaugh.simplecast.com/episodes/meet-judge-clifton-newman-who-will-oversee-alex-murdaughs-murder-trial) |
+| JANUARY 23RD, 2023 | BONUS || [Beyond The Headlines: Alex Murdaugh goes to trial (Bonus)](https://understand-murdaugh.simplecast.com/episodes/beyond-the-headlines-alex-murdaugh-goes-to-trial-bonus) |
+| JANUARY 24TH, 2023 | 03:57 | E16 | [Revelations about a potential murder weapon, and jury selection continues](https://understand-murdaugh.simplecast.com/episodes/revelations-about-a-potential-murder-weapon-and-more-jury-selection) |
+| JANUARY 25TH, 2023 | 31:33 | E17 | [Alex Murdaugh’s defense attorneys: Who are Dick Harpootlian and Jim Griffin](https://understand-murdaugh.simplecast.com/episodes/alex-murdaughs-defense-attorneys-who-are-dick-harpootlian-and-jim-griffin) |
+| JANUARY 25TH, 2023 | 08:37 | E18 | [Murder trial officially begins with opening statements](https://understand-murdaugh.simplecast.com/episodes/murder-trial-officially-begins-with-opening-statements) |
+| JANUARY 26TH, 2023 | 07:58 | E19 | [Understand Murdaugh: First witnesses in Alex Murdaugh murder trial take the stand](https://understand-murdaugh.simplecast.com/episodes/understand-murdaugh-first-witnesses-in-alex-murdaugh-murder-trial-take-the-stand) |
+| JANUARY 27TH, 2023 | 04:03 | BONUS | [Food trucks pop up in Walterboro as Murdaugh trial begins](https://understand-murdaugh.simplecast.com/episodes/food-trucks-pop-up-in-walterboro-as-murdaugh-trial-begins) |
+| JANUARY 27TH, 2023 | 07:55 | E20 | [Understand Murdaugh: Footage from Alex Murdaugh's first interview with investigators](https://understand-murdaugh.simplecast.com/episodes/understand-murdaugh-footage-from-alex-murdaugh-interview) |
+| JANUARY 30TH, 2023 | 11:10 | E21 | [Paul Murdaugh's final texts revealed and Alex's second SLED interview](https://understand-murdaugh.simplecast.com/episodes/paul-murdaughs-final-texts-revealed-and-alexs-second-sled-interview) |
+| JANUARY 31ST, 2023 | 11:43 | E22 | [Debate over whether Alex Murdaugh confessed continues](https://understand-murdaugh.simplecast.com/episodes/understand-murdaugh-debate-over-whether-alex-murdaugh-confessed-continues) |
+| FEBRUARY 1ST, 2023 | 12:12 | E23 | [Family friends identify Alex Murdaugh's voice in video shot before murders](https://understand-murdaugh.simplecast.com/episodes/family-friends-identify-alex-murdaughs-voice-in-video-shot-before-murders) |
+| FEBRUARY 2ND, 2023 | 08:36 | E24 | [Alex Murdaugh's colleagues detail his alleged financial crimes to an empty jury box](https://understand-murdaugh.simplecast.com/episodes/alex-murdaughs-colleagues-detail-his-alleged-financial-crimes-to-an-empty-jury-box) |
+| FEBRUARY 3RD, 2023 | 08:48 | E25 | [Further evidence of possible financial crimes and law enforcement testimony as week two ends](https://understand-murdaugh.simplecast.com/episodes/further-evidence-of-possible-financial-crimes-and-law-enforcement-testimony-as-week-two-ends)
+| FEBRUARY 6TH, 2023 | 08:41 | E26 | [Prosecutors get judge's OK to introduce alleged financial crimes](https://understand-murdaugh.simplecast.com/episodes/prosecutors-get-judges-ok-to-introduce-alleged-financial-crimes) |
+| FEBRUARY 7TH, 2023 | 11:36 | E27 | [Gunshot residue found on jacket Alex Murdaugh allegedly stashed after wife, son were slain](https://understand-murdaugh.simplecast.com/episodes/gunshot-residue-found-on-jacket-alex-murdaugh-allegedly-stashed-after-wife-son-were-slain) |
+| FEBRUARY 8TH, 2023 | 12:07 | E28 | [Jurors hear about gunshot residue, SUV data despite bomb threat disruption](https://understand-murdaugh.simplecast.com/episodes/jurors-hear-about-gunshot-residue-suv-data-despite-bomb-threat-disruption) |
+| FEBRUARY 9TH, 2023 | 08:52 | E29 | [Jurors hear evidence of Murdaugh's finacial schemes and thefts](https://understand-murdaugh.simplecast.com/episodes/jurors-hear-evidence-of-murdaughs-finacial-schemes-and-thefts) |
+| FEBRUARY 10TH, 2023 | 13:07 | E30 | [Murdaugh family housekeeper takes the stand](https://understand-murdaugh.simplecast.com/episodes/murdaugh-family-housekeeper-takes-the-stand) |
 
 <hr>
 
@@ -1254,7 +1255,6 @@ Altogether, through 19 indictments containing 99 charges against Murdaugh, the S
 | SC Attorney General |
 |-----|
 | [Attorney General Alan Wilson announces State Grand Jury issues new indictments against Richard Alexander Murdaugh](https://www.scag.gov/about-the-office/news/attorney-general-alan-wilson-announces-state-grand-jury-issues-new-indictments-against-richard-alexander-murdaugh/) |
-||
 | (COLUMBIA, SC) - South Carolina Attorney General Alan Wilson announced today that the South Carolina State Grand Jury issued new indictments against Richard Alexander Murdaugh, Spencer Anwan Roberts, and Jerry K. Rivers. Alex Murdaugh was indicted for four counts of Obtaining Signature or Property by False Pretenses Value $10,000 or More, two counts of Money Laundering Value $20,000 - $100,000, one count of Money Laundering Value $100,000 or More, two counts of Computer Crime Value More Than $10,000. Spencer Roberts was indicted for one count of Obtaining Signature or Property by False Pretenses Value $10,000 or More, one count of Money Laundering Value $20,000 - $100,000, one count of Computer Crime Value More Than $10,000, and one count of Insurance Fraud. Jerry Rivers was indicted for Obstruction of Justice. |
 | In Indictment 2022-GS-47-23, venued in Colleton County, the State Grand Jury charged Alex Murdaugh with one count of Obtaining Signature or Property by False Pretenses and one Count of Money Laundering for misappropriating funds rather than paying the fees into the firm as he was required to do. |
 | In Indictment 2022-GS-47-24, venued in Hampton County, the State Grand Jury charged Alex Murdaugh with two counts of Obtaining Signature or Property by False Pretenses, one count of Money Laundering, and one count of Computer Crime alleging that Murdaugh through false representations took a loan repayment from the firm that was due to another partner. |
