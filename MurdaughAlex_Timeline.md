@@ -1245,6 +1245,11 @@ Altogether, through 19 indictments containing 99 charges against Murdaugh, the S
 | FEBRUARY 8TH, 2023 | 12:07 | E28 | [Jurors hear about gunshot residue, SUV data despite bomb threat disruption](https://understand-murdaugh.simplecast.com/episodes/jurors-hear-about-gunshot-residue-suv-data-despite-bomb-threat-disruption) |
 | FEBRUARY 9TH, 2023 | 08:52 | E29 | [Jurors hear evidence of Murdaugh's finacial schemes and thefts](https://understand-murdaugh.simplecast.com/episodes/jurors-hear-evidence-of-murdaughs-finacial-schemes-and-thefts) |
 | FEBRUARY 10TH, 2023 | 13:07 | E30 | [Murdaugh family housekeeper takes the stand](https://understand-murdaugh.simplecast.com/episodes/murdaugh-family-housekeeper-takes-the-stand) |
+| FEBRUARY 13TH, 2023 | 12:39 | E31 | [COVID-19 poses existential threat to Alex Murdaugh murder trial](https://understand-murdaugh.simplecast.com/episodes/covid-19-poses-existential-threat-to-alex-murdaugh-murder-trial) |
+| FEBRUARY 14TH, 2023 | 12:58 | E32 | [Maggie Murdaugh's sister testifies about Alex's 'odd' statements after slayings](https://understand-murdaugh.simplecast.com/episodes/maggie-murdaughs-sister-testifies-about-alexs-odd-statements-after-slayings) |
+| FEBRUARY 15TH, 2023 | 14:47 | E33 | [Murdaugh murders investigator didn't learn of critical blood test until after indictments](https://understand-murdaugh.simplecast.com/episodes/murdaugh-murders-investigator-didnt-learn-of-critical-blood-test-until-after-indictments) |
+| FEBRUARY 16TH, 2023 | 16:03 | E34 | [Jurors in Alex Murdaugh murder trial hear him confess to orchestrating roadside shooting](https://understand-murdaugh.simplecast.com/episodes/jurors-in-alex-murdaugh-murder-trial-hear-him-confess-to-orchestrating-roadside-shooting) |
+| FEBRUARY 17TH, 2023 | 11:49 | E35 | [Alex Murdaugh sped down country roads in hour after wife, son were killed](https://understand-murdaugh.simplecast.com/episodes/alex-murdaugh-sped-down-country-roads-in-hour-after-wife-son-were-killed) |
 
 <hr>
 
