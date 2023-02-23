@@ -607,7 +607,7 @@
 |On the night of June 7, Maggie was shot multiple times with a high-powered rifle. She received a bullet wound to the back of her head while lying face down on the ground, multiple sources have told FITSNews. Paul was killed with a shotgun, which caused multiple injuries. He, too, was shot in the head, according to his death certificate. He was killed with one round of birdshot and one round of buckshot, according to multiple sources.
 | [Journalist claims 1st Amendment rights in Mallory Beach lawsuit](https://www.postandcourier.com/murdaugh-updates/journalist-claims-1st-amendment-rights-in-mallory-beach-lawsuit/article_fd9f8a42-c712-11ec-b499-7f0ac6f94a65.html) |
 | [What Can Blood Spatter Tell Us? Forensic Expert Explains](https://www.fitsnews.com/2022/04/28/what-can-blood-spatter-tell-us-forensic-expert-explains/) |
-| **Apr 29, 2022**|
+| **April 29, 2022**|
 | [Palmetto State Bank’s Murdaugh ties draw scrutiny from grand jury probes, regulators](https://www.postandcourier.com/murdaugh-updates/palmetto-state-banks-murdaugh-ties-draw-scrutiny-from-grand-jury-probes-regulators/article_15392370-c74a-11ec-b263-77aee3943937.html) |
 | [Funeral Home Tied To Alex Murdaugh Hands Over Documents To Lawyers](https://www.fitsnews.com/2022/04/29/funeral-home-tied-to-alex-murdaugh-hands-over-documents-to-lawyers/) |
 | **May 3, 2022**|
@@ -683,7 +683,7 @@
 | [‘Did You Call Butch?’: Alex Murdaugh’s Quest To Get His Son Readmitted To Law School](https://www.fitsnews.com/2022/06/23/did-you-call-butch-alex-murdaughs-quest-to-get-his-son-readmitted-to-law-school/) |
 | **June 24, 2022**|
 | [Alleged Murdaugh Co-Conspirator ‘Cousin Eddie’ Arrested On New Charges](https://www.fitsnews.com/2022/06/24/alleged-murdaugh-co-conspirator-cousin-eddie-arrested-on-new-charges/) |
-| **Jun 25, 2022**|
+| **June 25, 2022**|
 | [Curtis Smith, accused in failed $10M life insurance scheme with Alex Murdaugh, arrested](https://www.postandcourier.com/murdaugh-updates/curtis-smith-accused-in-failed-10m-life-insurance-scheme-with-alex-murdaugh-arrested/article_fe406778-f49e-11ec-8e3d-87cd817bf313.html) |
 | **June 28, 2022**|
 | [Alex Murdaugh, alleged hitman Smith indicted on money laundering, drug trafficking charges](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-alleged-hitman-smith-indicted-on-money-laundering-drug-trafficking-charges/article_196d7926-f6e0-11ec-9cec-23d45ffb9026.html) |
@@ -841,7 +841,7 @@
 | [‘Murdaugh Murders’ Saga: Judge Reverses Himself On Severing Boat Crash Defendants](https://www.fitsnews.com/2022/09/27/murdaugh-murders-saga-judge-reverses-himself-on-severing-boat-crash-defendants/) |
 | **September 28, 2022**|
 | [‘Murdaugh Murders’ Saga: Russell Laffitte’s Federal Case Points To Broader Financial Crimes Conspiracy](https://www.fitsnews.com/2022/09/28/murdaugh-murders-saga-russell-laffittes-federal-case-points-to-broader-financial-crimes-conspiracy/) |
-| **O4ct 2, 2022**|
+| **October 2, 2022**|
 | [Questions, complaints linger over state judge’s role in Murdaugh saga](https://www.postandcourier.com/murdaugh-updates/questions-complaints-linger-over-state-judges-role-in-murdaugh-saga/article_ca712be6-40c3-11ed-8a48-4b5c2e2a0e5b.html) |
 | **October 3, 2022**|
 | [‘Murdaugh Murders’ Saga: Feds Fire Back At Russell Laffitte](https://www.fitsnews.com/2022/10/03/murdaugh-murders-saga-feds-fire-back-at-russell-laffitte/) |
