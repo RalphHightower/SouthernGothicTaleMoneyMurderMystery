@@ -102,5 +102,9 @@ During his direct examination, though, Harpootlian attempted to demonstrate for 
 |Jurors appeared thoroughly unimpressed by Murdaugh’s explanation for his repeated lies to law enforcement, family members and his law partners – and for much of his testimony they seemed to be viewing him with considerable skepticism. The mood seemed to shift as the day wore on, though, especially when Murdaugh invoked the controversy over his bloody (or rather not bloody) shirt – which investigators initially claimed had traces of high-velocity impact spatter. *“Until my lawyers proved that this blood spatter that they said I had on my shirt – from my wife and my son – was a lie, all of a sudden my clothes became an issue,” he said, adding that “there was no blood spatter on me.”*
 |That comment certainly seemed to pique the jury’s interest … |
 |Judge Newman called an abrupt halt to Murdaugh’s cross-examination shortly after 5:30 p.m. EST – announcing that court would adjourn until 9:30 a.m. EST the following morning. Murdaugh will return to the stand when court reconvenes, with Waters expected to ramp up his cross-examination. |
+| **February 24, 2023** |
+| [LIVE FEED – ‘Murdaugh Murders’ Trial: Day Twenty-Four](https://www.fitsnews.com/2023/02/24/live-feed-murdaugh-murders-trial-day-twenty-four/) |
+| News and notes from South Carolina’s ‘Trial of the Century.’ |
+| [Live: Alex Murdaugh admits to stealing $3.7 million in 2019](https://www.postandcourier.com/murdaugh-updates/live-alex-murdaugh-admits-to-stealing-3-7-million-in-2019/article_30ecd372-b165-11ed-bcbc-4789e55dc390.html) |
 
 [^1]: Court closed for Presidents Day 2023-02-20
