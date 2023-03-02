@@ -145,7 +145,8 @@
 | **July 20, 2021**|
 | [‘She’s Gone, Don’t Worry About Her,’: What The Murdaughs Did The Night Mallory Beach Died](https://www.fitsnews.com/2021/07/20/dont-worry-about-her-shes-gone-what-the-murdaughs-did-the-night-mallory-beach-died/) |
 | **July 22, 2021**|
-| SLED releases the 911 call placed by Alex Murdaugh the night Paul and Maggie Murdaugh were killed.<br>[Alex Murdaugh pleads for ambulance, help in 911 calls after discovering wife, son dead](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-pleads-for-ambulance-help-in-911-calls-after-discovering-wife-son-dead/article_11c50438-eb32-11eb-91df-1b336cbbd3ae.html) |
+| SLED releases the 911 call placed by Alex Murdaugh the night Paul and Maggie Murdaugh were killed.|
+|[Alex Murdaugh pleads for ambulance, help in 911 calls after discovering wife, son dead](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-pleads-for-ambulance-help-in-911-calls-after-discovering-wife-son-dead/article_11c50438-eb32-11eb-91df-1b336cbbd3ae.html) |
 | **July 22, 2021**|
 | [Investigation of boat crash involving Paul Murdaugh included missteps, roadblocks](https://www.postandcourier.com/murdaugh-updates/investigation-of-boat-crash-involving-paul-murdaugh-included-missteps-roadblocks/article_862a9b0a-ea18-11eb-926d-e7d54b29ef80.html) |
 | [Murdaugh Murders: Investigators Release 911 Recording](https://www.fitsnews.com/2021/07/22/murdaugh-murders-investigators-release-911-recording/) |
@@ -725,9 +726,8 @@
 | **[Alex Murdaugh Bond Hearing: Evidence, Details To Be Discussed](https://www.fitsnews.com/2022/07/19/alex-murdaugh-bond-hearing-evidence-details-to-be-discussed/)** |
 | **July 20, 2022**|
 | **[Alex Murdaugh requests speedy trial, gag order in double-murder case](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-requests-speedy-trial-gag-order-in-double-murder-case/article_3c989a50-06a5-11ed-9feb-bfcc9dc415c7.html)** |
-| **July 20, 2022**|
 | **[Ex-Palmetto State Bank CEO Laffitte indicted on federal fraud charges](https://www.postandcourier.com/murdaugh-updates/ex-palmetto-state-bank-ceo-laffitte-indicted-on-federal-fraud-charges/article_24eedc3e-079f-11ed-9148-df39ef6c7915.html)** |
-| **[Accused Killer Alex Murdaugh Denied Bond In Double Homicide](https://www.fitsnews.com/2022/07/20/accused-killer-alex-murdaugh-denied-bond-in-double-homicide**|
+| **[Accused Killer Alex Murdaugh Denied Bond In Double Homicide](https://www.fitsnews.com/2022/07/20/accused-killer-alex-murdaugh-denied-bond-in-double-homicide)**|
 | **[First Federal Indictment Handed Down In Murdaugh Case … To Russell Laffitte](https://www.fitsnews.com/2022/07/20/first-federal-indictment-handed-down-in-murdaugh-case-to-russell-laffitte/)** |
 | **[Murdaugh Murders: Secretive System Is On Trial … But A Gag Order Is Being Imposed?](https://www.fitsnews.com/2022/07/20/murdaugh-murders-secretive-system-is-on-trial-but-a-gag-order-is-being-imposed/)** |
 | **July 21, 2022**|
