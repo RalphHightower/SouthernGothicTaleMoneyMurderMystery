@@ -641,210 +641,212 @@
 | **May 27, 2022**|
 | [Palmetto State Bank Routinely Allowed Murdaugh To Overdraw Account — Sometimes By Six Figures](https://www.fitsnews.com/2022/05/27/palmetto-state-bank-routinely-allowed-murdaugh-to-overdraw-account-sometimes-by-six-figures/) |
 | **June 1, 2022**|
-| [Let’s Just Brush The Alleged Nepotism In Charleston County Probate Court Under The Rug …](https://www.fitsnews.com/2022/06/01/lets-just-brush-the-alleged-nepotism-in-charleston-county-probate-court-under-the-rug/) | 
-| [SLED to exhume remains of Murdaugh family housekeeper as it investigates her death](https://www.postandcourier.com/murdaugh-updates/sled-to-exhume-remains-of-murdaugh-family-housekeeper-as-it-investigates-her-death/article_151dfac2-e366-11ec-a778-f30940aed739.html) |
+| **[Let’s Just Brush The Alleged Nepotism In Charleston County Probate Court Under The Rug …](https://www.fitsnews.com/2022/06/01/lets-just-brush-the-alleged-nepotism-in-charleston-county-probate-court-under-the-rug/)** | 
+| **[SLED to exhume remains of Murdaugh family housekeeper as it investigates her death](https://www.postandcourier.com/murdaugh-updates/sled-to-exhume-remains-of-murdaugh-family-housekeeper-as-it-investigates-her-death/article_151dfac2-e366-11ec-a778-f30940aed739.html)** |
 | **June 3, 2022**|
-| [Attorney For Alex Murdaugh Dies …](https://www.fitsnews.com/2022/06/03/attorney-for-alex-murdaugh-dies/) |
+| **[Attorney For Alex Murdaugh Dies …](https://www.fitsnews.com/2022/06/03/attorney-for-alex-murdaugh-dies/)** |
 | **June 5, 2022**|
-| [Federal Judge Denies Alex Murdaugh’s Request To Block Release Of Jailhouse Calls](https://www.fitsnews.com/2022/06/05/federal-judge-denies-alex-murdaughs-request-to-block-release-of-jailhouse-calls/) |
+|**[Federal Judge Denies Alex Murdaugh’s Request To Block Release Of Jailhouse Calls](https://www.fitsnews.com/2022/06/05/federal-judge-denies-alex-murdaughs-request-to-block-release-of-jailhouse-calls/) |
 | **June 6, 2022**|
-| [‘Mountain Of Evidence’ Piling Up Against Alex Murdaugh In Murder Case, Sources Say](https://www.fitsnews.com/2022/06/06/mountain-of-evidence-piling-up-against-alex-murdaugh-in-murder-case-sources-say/) |
+| **[‘Mountain Of Evidence’ Piling Up Against Alex Murdaugh In Murder Case, Sources Say](https://www.fitsnews.com/2022/06/06/mountain-of-evidence-piling-up-against-alex-murdaugh-in-murder-case-sources-say/)** |
 |  **June 7, 2022**|
-| [Alex Murdaugh Violated Court Order In Trying To Disclaim Wife’s Estate](https://www.fitsnews.com/2022/06/07/alex-murdaugh-violated-court-order-in-trying-to-disclaim-wifes-estate/) |
-| [Alex Murdaugh faces cascade of lawsuits 1 year after double homicide of wife, son](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-faces-cascade-of-lawsuits-1-year-after-double-homicide-of-wife-son/article_971dc258-e692-11ec-bb25-fb41a02d7a87.html) |
+| **[Alex Murdaugh Violated Court Order In Trying To Disclaim Wife’s Estate](https://www.fitsnews.com/2022/06/07/alex-murdaugh-violated-court-order-in-trying-to-disclaim-wifes-estate/)** |
+| **[Alex Murdaugh faces cascade of lawsuits 1 year after double homicide of wife, son](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-faces-cascade-of-lawsuits-1-year-after-double-homicide-of-wife-son/article_971dc258-e692-11ec-bb25-fb41a02d7a87.html) |
 | **June 8, 2022**|
-| [Murdaugh Murders: Timing On Murder Indictments?](https://www.fitsnews.com/2022/06/08/murduagh-murders-timing-on-murder-indictments/) |
+| [Murdaugh Murders: Timing On Murder Indictments?](https://www.fitsnews.com/2022/06/08/murduagh-murders-timing-on-murder-indictments/)** |
 | A graveside service is held at Hampton Cemetery for both Paul and Maggie Murdaugh. |
 |  **June 10, 2022**|
-| [Alex Murdaugh Jailhouse Tapes In Mail, On Way To Media Outlets](https://www.fitsnews.com/2022/06/10/alex-murdaugh-jailhouse-tapes-in-mail-on-way-to-media-outlets/) |
+| **[Alex Murdaugh Jailhouse Tapes In Mail, On Way To Media Outlets](https://www.fitsnews.com/2022/06/10/alex-murdaugh-jailhouse-tapes-in-mail-on-way-to-media-outlets/)** |
 | **June 14, 2022**|
-| [The Alex Murdaugh Jail House Calls: ‘John Marvin’s Too Scared To Do Anything That’s Teetering’](https://www.fitsnews.com/2022/06/14/the-alex-murdaugh-jail-house-calls-john-marvins-too-scared-to-do-anything-thats-teetering/) |
+| **[The Alex Murdaugh Jail House Calls: ‘John Marvin’s Too Scared To Do Anything That’s Teetering’](https://www.fitsnews.com/2022/06/14/the-alex-murdaugh-jail-house-calls-john-marvins-too-scared-to-do-anything-thats-teetering/)** |
 |  **June 15, 2022**|
-| [Exclusive Interview: ‘Knife Fighter’ Wes Donehue ‘Pimps’ New Book, Speaks On ‘Murdaugh Murders’ Civil Case](https://www.fitsnews.com/2022/06/15/exclusive-interview-knife-fighter-wes-donehue-pimps-new-book-speaks-on-murdaugh-murders-civil-case/) |
+| **[Exclusive Interview: ‘Knife Fighter’ Wes Donehue ‘Pimps’ New Book, Speaks On ‘Murdaugh Murders’ Civil Case](https://www.fitsnews.com/2022/06/15/exclusive-interview-knife-fighter-wes-donehue-pimps-new-book-speaks-on-murdaugh-murders-civil-case/)** |
 | **June 15, 2022**|
-| [‘It Wasn’t That Bad’: Alex Murdaugh Tells Details About His ‘Shooting’ During Jailhouse Call](https://www.fitsnews.com/2022/06/15/it-wasnt-that-bad-alex-murdaugh-tells-details-about-his-shooting-during-jailhouse-call/) |
+| **[‘It Wasn’t That Bad’: Alex Murdaugh Tells Details About His ‘Shooting’ During Jailhouse Call](https://www.fitsnews.com/2022/06/15/it-wasnt-that-bad-alex-murdaugh-tells-details-about-his-shooting-during-jailhouse-call/)** |
 | **2022-06-16**|
-| [In the Matter of Richard Alexander Murdaugh, Respondent](https://www.sccourts.org/courtOrders/displayOrder.cfm?orderNo=2022-06-16-01)
+| **[In the Matter of Richard Alexander Murdaugh, Respondent](https://www.sccourts.org/courtOrders/displayOrder.cfm?orderNo=2022-06-16-01)**
 |The Supreme Court of South Carolina<br>In the Matter of Richard Alexander Murdaugh, Respondent.|
 |Appellate Case No. 2022-000812 <br> *Therefore, we dispense with further proceedings before the Commission.  Respondent shall appear in the Supreme Court Courtroom at 11:00 a.m. on June 22, 2022, to present legal argument on the question of whether this Court should disbar Respondent from the practice of law.* |
 | **June 16, 2022**|
-| [SC Supreme Court moves to disbar disgraced attorney Alex Murdaugh](https://www.postandcourier.com/murdaugh-updates/sc-supreme-court-moves-to-disbar-disgraced-attorney-alex-murdaugh/article_6dde2ace-ed9d-11ec-b712-2f51847c3550.html) |
-| [‘Hampton County Attorney’ No More: SC Supreme Court Moves To Disbar Alex Murdaugh With Unprecedented Speed](https://www.fitsnews.com/2022/06/16/hampton-county-attorney-no-more-alex-murdaugh-to-be-disbarred/) |
+| **[SC Supreme Court moves to disbar disgraced attorney Alex Murdaugh](https://www.postandcourier.com/murdaugh-updates/sc-supreme-court-moves-to-disbar-disgraced-attorney-alex-murdaugh/article_6dde2ace-ed9d-11ec-b712-2f51847c3550.html)** |
+| **[‘Hampton County Attorney’ No More: SC Supreme Court Moves To Disbar Alex Murdaugh With Unprecedented Speed](https://www.fitsnews.com/2022/06/16/hampton-county-attorney-no-more-alex-murdaugh-to-be-disbarred/)** |
 | **June 21, 2022** |
 |[Alex Murdaugh waives right to contest SC Supreme Court disbarring him from practicing law](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-waives-right-to-contest-sc-supreme-court-disbarring-him-from-practicing-law/article_62f20e40-f19a-11ec-b012-db4269140b06.html) |
 | **2022-06-21**|
-| [In the Matter of Richard Alexander Murdaugh, Respondent.](https://www.sccourts.org/courtOrders/displayOrder.cfm?orderNo=2022-06-21-01) The Supreme Court of South Carolina<br>In the Matter of Richard Alexander Murdaugh, Respondent.|
+| **[In the Matter of Richard Alexander Murdaugh, Respondent.](https://www.sccourts.org/courtOrders/displayOrder.cfm?orderNo=2022-06-21-01)** |
+|The Supreme Court of South Carolina<br>In the Matter of Richard Alexander Murdaugh, Respondent.|
 |Appellate Case No. 2022-000812|
 |*Respondent waives all rights to a hearing, states he does not contest the Court's "authority and decision" to disbar him from the practice of law, and requests that the Court cancel the hearing currently scheduled for June 22, 2022.*|
 | **June  22, 2022** |
-| [Editorial: SC Supreme Court crackdown on problem judges should prompt Senate reforms](https://www.postandcourier.com/opinion/editorials/editorial-sc-supreme-court-crackdown-on-problem-judges-should-prompt-senate-reforms/article_5bd903d8-f0f6-11ec-a245-7bc89915d783.html) |
-| [Misconduct Charges Against Alex Murdaugh Included Boat Crash Antics At Hospital](https://www.fitsnews.com/2022/06/22/misconduct-charges-against-alex-murdaugh-included-boat-crash-antics-at-hospital/) |
+| **[Editorial: SC Supreme Court crackdown on problem judges should prompt Senate reforms](https://www.postandcourier.com/opinion/editorials/editorial-sc-supreme-court-crackdown-on-problem-judges-should-prompt-senate-reforms/article_5bd903d8-f0f6-11ec-a245-7bc89915d783.html)** |
+| **[Misconduct Charges Against Alex Murdaugh Included Boat Crash Antics At Hospital](https://www.fitsnews.com/2022/06/22/misconduct-charges-against-alex-murdaugh-included-boat-crash-antics-at-hospital/)** |
 | **June 23, 2022**|
-| [‘Did You Call Butch?’: Alex Murdaugh’s Quest To Get His Son Readmitted To Law School](https://www.fitsnews.com/2022/06/23/did-you-call-butch-alex-murdaughs-quest-to-get-his-son-readmitted-to-law-school/) |
+| **[‘Did You Call Butch?’: Alex Murdaugh’s Quest To Get His Son Readmitted To Law School](https://www.fitsnews.com/2022/06/23/did-you-call-butch-alex-murdaughs-quest-to-get-his-son-readmitted-to-law-school/)** |
 | **June 24, 2022**|
-| [Alleged Murdaugh Co-Conspirator ‘Cousin Eddie’ Arrested On New Charges](https://www.fitsnews.com/2022/06/24/alleged-murdaugh-co-conspirator-cousin-eddie-arrested-on-new-charges/) |
+| **[Alleged Murdaugh Co-Conspirator ‘Cousin Eddie’ Arrested On New Charges](https://www.fitsnews.com/2022/06/24/alleged-murdaugh-co-conspirator-cousin-eddie-arrested-on-new-charges/)** |
 | **June 25, 2022**|
-| [Curtis Smith, accused in failed $10M life insurance scheme with Alex Murdaugh, arrested](https://www.postandcourier.com/murdaugh-updates/curtis-smith-accused-in-failed-10m-life-insurance-scheme-with-alex-murdaugh-arrested/article_fe406778-f49e-11ec-8e3d-87cd817bf313.html) |
+| **[Curtis Smith, accused in failed $10M life insurance scheme with Alex Murdaugh, arrested](https://www.postandcourier.com/murdaugh-updates/curtis-smith-accused-in-failed-10m-life-insurance-scheme-with-alex-murdaugh-arrested/article_fe406778-f49e-11ec-8e3d-87cd817bf313.html)** |
 | **June 28, 2022**|
-| [Alex Murdaugh, alleged hitman Smith indicted on money laundering, drug trafficking charges](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-alleged-hitman-smith-indicted-on-money-laundering-drug-trafficking-charges/article_196d7926-f6e0-11ec-9cec-23d45ffb9026.html) |
-| [State AG Announces Drug Charges Against Alex Murdaugh And Curtis ‘Eddie’ Smith](https://www.fitsnews.com/2022/06/28/state-ag-announces-drug-charges-against-alex-murdaugh-and-curtis-eddie-smith/) |
+| [Alex Murdaugh, alleged hitman Smith indicted on money laundering, drug trafficking charges](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-alleged-hitman-smith-indicted-on-money-laundering-drug-trafficking-charges/article_196d7926-f6e0-11ec-9cec-23d45ffb9026.html)** |
+| **[State AG Announces Drug Charges Against Alex Murdaugh And Curtis ‘Eddie’ Smith](https://www.fitsnews.com/2022/06/28/state-ag-announces-drug-charges-against-alex-murdaugh-and-curtis-eddie-smith/)** |
 | **July 5, 2022**|
-| [Geofencing Could Play Starring Role In ‘Murdaugh Murders’ Saga](https://www.fitsnews.com/2022/07/05/geofencing-could-play-starring-role-in-murdaugh-murders-saga/) |
+| **[Geofencing Could Play Starring Role In ‘Murdaugh Murders’ Saga](https://www.fitsnews.com/2022/07/05/geofencing-could-play-starring-role-in-murdaugh-murders-saga/)** |
 | **July 12, 2022**|
-| [Attorney Alex Murdaugh expected to face charges in SC killings of wife, son](https://www.postandcourier.com/murdaugh-updates/attorney-alex-murdaugh-expected-to-face-charges-in-sc-killings-of-wife-son/article_4dbd5a5c-e2a4-11ec-a6d0-8b30d468e8da.html) |
+| **[Attorney Alex Murdaugh expected to face charges in SC killings of wife, son](https://www.postandcourier.com/murdaugh-updates/attorney-alex-murdaugh-expected-to-face-charges-in-sc-killings-of-wife-son/article_4dbd5a5c-e2a4-11ec-a6d0-8b30d468e8da.html)** |
 | **2022-07-12**|
-| [In the Matter of Richard Alexander Murdaugh, Respondent.](https://www.sccourts.org/courtOrders/displayOrder.cfm?orderNo=2022-07-12-01) The Supreme Court of South Carolina<br>In the Matter of Richard Alexander Murdaugh, Respondent.<br>Appellate Case 2022-000812<br> *Based on his admitted reprehensible misconduct, we hereby disbar Respondent Richard Alexander Murdaugh from the practice of law in South Carolina.*  |
+| **[In the Matter of Richard Alexander Murdaugh, Respondent.](https://www.sccourts.org/courtOrders/displayOrder.cfm?orderNo=2022-07-12-01)**|
+| The Supreme Court of South Carolina<br>In the Matter of Richard Alexander Murdaugh, Respondent.<br>Appellate Case 2022-000812<br> *Based on his admitted reprehensible misconduct, we hereby disbar Respondent Richard Alexander Murdaugh from the practice of law in South Carolina.*  |
 | **July 12, 2022**|
-| [Murdaugh Murders: Charges Coming Against Alex Murdaugh](https://www.fitsnews.com/2022/07/12/murdaugh-murders-charges-coming-against-alex-murdaugh/) |
-| [SC Supreme Court Formally Disbars Alex Murdaugh Ahead Of Expected Murder Indictment](https://www.fitsnews.com/2022/07/12/sc-supreme-court-formally-disbars-alex-murdaugh-ahead-of-expected-murder-indictment/) |
+| **[Murdaugh Murders: Charges Coming Against Alex Murdaugh](https://www.fitsnews.com/2022/07/12/murdaugh-murders-charges-coming-against-alex-murdaugh/)** |
+| **[SC Supreme Court Formally Disbars Alex Murdaugh Ahead Of Expected Murder Indictment](https://www.fitsnews.com/2022/07/12/sc-supreme-court-formally-disbars-alex-murdaugh-ahead-of-expected-murder-indictment/)** |
 | **July 14, 2022**|
-| [Alex Murdaugh Charged With Killing His Wife And Son](https://www.fitsnews.com/2022/07/14/alex-murdaugh-charged-with-killing-his-wife-and-son/) |
-| [Alex Murdaugh indicted in double murder of wife, son](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-indicted-in-double-murder-of-wife-son/article_ca2f6554-02e2-11ed-bc35-a78ad61428b8.html) |
-| [How Alex Murdaugh Might Be Hiding Jail Calls From Law Enforcement …](https://www.fitsnews.com/2022/07/14/how-alex-murdaugh-might-be-hiding-jail-calls-from-law-enforcement/) |
+| **[Alex Murdaugh Charged With Killing His Wife And Son](https://www.fitsnews.com/2022/07/14/alex-murdaugh-charged-with-killing-his-wife-and-son/)** |
+| **[Alex Murdaugh indicted in double murder of wife, son](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-indicted-in-double-murder-of-wife-son/article_ca2f6554-02e2-11ed-bc35-a78ad61428b8.html)** |
+| **[How Alex Murdaugh Might Be Hiding Jail Calls From Law Enforcement …](https://www.fitsnews.com/2022/07/14/how-alex-murdaugh-might-be-hiding-jail-calls-from-law-enforcement/)** |
 | **July 17, 2022**|
-| [Founder Of Forge Consulting, His Wife Killed In Crash, Sources Say](https://www.fitsnews.com/2022/07/17/founder-of-forge-consulting-his-wife-killed-in-crash-sources-say/) |
+| **[Founder Of Forge Consulting, His Wife Killed In Crash, Sources Say](https://www.fitsnews.com/2022/07/17/founder-of-forge-consulting-his-wife-killed-in-crash-sources-say/)** |
 | **July 18, 2022**|
-| [Murdaugh Murders: Death Penalty Decision Looms Large For Alan Wilson](https://www.fitsnews.com/2022/07/18/murdaugh-murders-death-penalty-decision-looms-large-for-alan-wilson/) |
+| **[Murdaugh Murders: Death Penalty Decision Looms Large For Alan Wilson](https://www.fitsnews.com/2022/07/18/murdaugh-murders-death-penalty-decision-looms-large-for-alan-wilson/)** |
 | **July  19, 2022**
- | [Editorial: Alex Murdaugh isn’t like other people — except in this one tragic way](https://www.postandcourier.com/opinion/editorials/editorial-alex-murdaugh-isnt-like-other-people-except-in-this-one-tragic-way/article_48969a4e-06a7-11ed-899f-f762c6f1b95d.html) |
-| [Alex Murdaugh Bond Hearing: Evidence, Details To Be Discussed](https://www.fitsnews.com/2022/07/19/alex-murdaugh-bond-hearing-evidence-details-to-be-discussed/) |
+ | **[Editorial: Alex Murdaugh isn’t like other people — except in this one tragic way](https://www.postandcourier.com/opinion/editorials/editorial-alex-murdaugh-isnt-like-other-people-except-in-this-one-tragic-way/article_48969a4e-06a7-11ed-899f-f762c6f1b95d.html)** |
+| **[Alex Murdaugh Bond Hearing: Evidence, Details To Be Discussed](https://www.fitsnews.com/2022/07/19/alex-murdaugh-bond-hearing-evidence-details-to-be-discussed/)** |
 | **July 20, 2022**|
-| [Alex Murdaugh requests speedy trial, gag order in double-murder case](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-requests-speedy-trial-gag-order-in-double-murder-case/article_3c989a50-06a5-11ed-9feb-bfcc9dc415c7.html) |
+| **[Alex Murdaugh requests speedy trial, gag order in double-murder case](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-requests-speedy-trial-gag-order-in-double-murder-case/article_3c989a50-06a5-11ed-9feb-bfcc9dc415c7.html)** |
 | **July 20, 2022**|
-| [Ex-Palmetto State Bank CEO Laffitte indicted on federal fraud charges](https://www.postandcourier.com/murdaugh-updates/ex-palmetto-state-bank-ceo-laffitte-indicted-on-federal-fraud-charges/article_24eedc3e-079f-11ed-9148-df39ef6c7915.html) |
-| [Accused Killer Alex Murdaugh Denied Bond In Double Homicide](https://www.fitsnews.com/2022/07/20/accused-killer-alex-murdaugh-denied-bond-in-double-homicide/) |
-| [First Federal Indictment Handed Down In Murdaugh Case … To Russell Laffitte](https://www.fitsnews.com/2022/07/20/first-federal-indictment-handed-down-in-murdaugh-case-to-russell-laffitte/) |
-| [Murdaugh Murders: Secretive System Is On Trial … But A Gag Order Is Being Imposed?](https://www.fitsnews.com/2022/07/20/murdaugh-murders-secretive-system-is-on-trial-but-a-gag-order-is-being-imposed/) |
+| **[Ex-Palmetto State Bank CEO Laffitte indicted on federal fraud charges](https://www.postandcourier.com/murdaugh-updates/ex-palmetto-state-bank-ceo-laffitte-indicted-on-federal-fraud-charges/article_24eedc3e-079f-11ed-9148-df39ef6c7915.html)** |
+| **[Accused Killer Alex Murdaugh Denied Bond In Double Homicide](https://www.fitsnews.com/2022/07/20/accused-killer-alex-murdaugh-denied-bond-in-double-homicide**|
+| **[First Federal Indictment Handed Down In Murdaugh Case … To Russell Laffitte](https://www.fitsnews.com/2022/07/20/first-federal-indictment-handed-down-in-murdaugh-case-to-russell-laffitte/)** |
+| **[Murdaugh Murders: Secretive System Is On Trial … But A Gag Order Is Being Imposed?](https://www.fitsnews.com/2022/07/20/murdaugh-murders-secretive-system-is-on-trial-but-a-gag-order-is-being-imposed/)** |
 | **July 21, 2022**|
-| [Murdaugh Murders: Venue Change?](https://www.fitsnews.com/2022/07/21/murdaugh-murders-venue-change/) |
+| **[Murdaugh Murders: Venue Change?](https://www.fitsnews.com/2022/07/21/murdaugh-murders-venue-change/)** |
 | **July  23, 2022**|
-| [Lawyer at SC firm pulled into Murdaugh scandal settles bicycle-death suit for $1.25M](https://www.postandcourier.com/murdaugh-updates/lawyer-at-sc-firm-pulled-into-murdaugh-scandal-settles-bicycle-death-suit-for-1-25m/article_af709e2a-06b8-11ed-884a-a7a54eef4ed3.html) |
+| **[Lawyer at SC firm pulled into Murdaugh scandal settles bicycle-death suit for $1.25M](https://www.postandcourier.com/murdaugh-updates/lawyer-at-sc-firm-pulled-into-murdaugh-scandal-settles-bicycle-death-suit-for-1-25m/article_af709e2a-06b8-11ed-884a-a7a54eef4ed3.html)** |
 | **July 25, 2022**|
-| [‘Murdaugh Murders’: The ‘Move Along, Nothing To See Here’ Crowd Is Back](https://www.fitsnews.com/2022/07/25/murdaugh-murders-the-move-along-nothing-to-see-here-crowd-is-back/) |
+| **[‘Murdaugh Murders’: The ‘Move Along, Nothing To See Here’ Crowd Is Back](https://www.fitsnews.com/2022/07/25/murdaugh-murders-the-move-along-nothing-to-see-here-crowd-is-back/)** |
 | **July 26, 2022**|
-| [Anatomy Of An Alleged Conspiracy: How Russell Laffitte And Alex Murdaugh Handled The Pinckney Case …](https://www.fitsnews.com/2022/07/26/anatomy-of-an-alleged-conspiracy-how-russell-laffitte-and-alex-murdaugh-handled-the-pinckney-case/) |
+| **[Anatomy Of An Alleged Conspiracy: How Russell Laffitte And Alex Murdaugh Handled The Pinckney Case …](https://www.fitsnews.com/2022/07/26/anatomy-of-an-alleged-conspiracy-how-russell-laffitte-and-alex-murdaugh-handled-the-pinckney-case/)** |
 | **July 27, 2022**|
-| [Ex-bank CEO tied to Alex Murdaugh scheme pleads not guilty in federal court](https://www.postandcourier.com/murdaugh-updates/ex-bank-ceo-tied-to-alex-murdaugh-scheme-pleads-not-guilty-in-federal-court/article_3c5c19b8-0d12-11ed-9a83-df90e2c59448.html) |
-| [Russell Laffitte Federal Hearing: ’He Doesn’t Think He Committed A Crime’](https://www.fitsnews.com/2022/07/27/russell-laffitte-federal-hearing-he-doesnt-think-he-committed-a-crime/) |
+| **[Ex-bank CEO tied to Alex Murdaugh scheme pleads not guilty in federal court](https://www.postandcourier.com/murdaugh-updates/ex-bank-ceo-tied-to-alex-murdaugh-scheme-pleads-not-guilty-in-federal-court/article_3c5c19b8-0d12-11ed-9a83-df90e2c59448.html)** |
+| **[Russell Laffitte Federal Hearing: ’He Doesn’t Think He Committed A Crime’](https://www.fitsnews.com/2022/07/27/russell-laffitte-federal-hearing-he-doesnt-think-he-committed-a-crime/)** |
 | **July 28, 2022**|
-| [Column: Don’t hide evidence in Murdaugh murder case if you want public trust in justice](https://www.postandcourier.com/aikenstandard/opinion/columns/column-don-t-hide-evidence-in-murdaugh-murder-case-if-you-want-public-trust-in/article_3f66def2-0ae4-11ed-98a2-6b7714895808.html) |
+| **[Column: Don’t hide evidence in Murdaugh murder case if you want public trust in justice](https://www.postandcourier.com/aikenstandard/opinion/columns/column-don-t-hide-evidence-in-murdaugh-murder-case-if-you-want-public-trust-in/article_3f66def2-0ae4-11ed-98a2-6b7714895808.html)** |
 | **July 29, 2022**|
-| [Do defendants like Alex Murdaugh get the death penalty? SC will soon find out.](https://www.postandcourier.com/murdaugh-updates/do-defendants-like-alex-murdaugh-get-the-death-penalty-sc-will-soon-find-out/article_91e48ab4-0934-11ed-bbfc-f738f80d705c.html) |
+| **[Do defendants like Alex Murdaugh get the death penalty? SC will soon find out.](https://www.postandcourier.com/murdaugh-updates/do-defendants-like-alex-murdaugh-get-the-death-penalty-sc-will-soon-find-out/article_91e48ab4-0934-11ed-bbfc-f738f80d705c.html)** |
 | **August 1, 2022**|
-| [Editorial: A reminder of SC legislators’ inappropriate perk, courtesy of Alex Murdaugh](https://www.postandcourier.com/opinion/editorials/editorial-a-reminder-of-sc-legislators-inappropriate-perk-courtesy-of-alex-murdaugh/article_30ddc9d8-0ed4-11ed-b7db-53cb48f585ef.html) |
-| [Transparency Inaction: Is South Carolina’s Attorney General Negotiating A Murdaugh Gag Order In Secret?](https://www.fitsnews.com/2022/08/01/transparency-inaction-is-south-carolinas-attorney-general-negotiating-a-murdaugh-gag-order-in-secret/) |
-| [Lindsey Edwards Interview: Former Sex Worker Details Forced Encounters With Alex Murdaugh](https://www.fitsnews.com/2022/08/02/lindsey-edwards-interview-former-sex-worker-details-forced-encounters-with-alex-murdaugh/) |
+| **[Editorial: A reminder of SC legislators’ inappropriate perk, courtesy of Alex Murdaugh](https://www.postandcourier.com/opinion/editorials/editorial-a-reminder-of-sc-legislators-inappropriate-perk-courtesy-of-alex-murdaugh/article_30ddc9d8-0ed4-11ed-b7db-53cb48f585ef.html)** |
+| **[Transparency Inaction: Is South Carolina’s Attorney General Negotiating A Murdaugh Gag Order In Secret?](https://www.fitsnews.com/2022/08/01/transparency-inaction-is-south-carolinas-attorney-general-negotiating-a-murdaugh-gag-order-in-secret/)** |
+| **[Lindsey Edwards Interview: Former Sex Worker Details Forced Encounters With Alex Murdaugh](https://www.fitsnews.com/2022/08/02/lindsey-edwards-interview-former-sex-worker-details-forced-encounters-with-alex-murdaugh/)** |
 | **August 2, 2022**|
-| [Judge won’t issue gag order in Alex Murdaugh double-murder case](https://www.postandcourier.com/murdaugh-updates/judge-wont-issue-gag-order-in-alex-murdaugh-double-murder-case/article_150f374a-12a4-11ed-b283-d316157717d2.html) |
-| [Murdaugh Murders: Gag Order Denied](https://www.fitsnews.com/2022/08/02/murdaugh-murders-gag-order-denied/) |
+| **[Judge won’t issue gag order in Alex Murdaugh double-murder case](https://www.postandcourier.com/murdaugh-updates/judge-wont-issue-gag-order-in-alex-murdaugh-double-murder-case/article_150f374a-12a4-11ed-b283-d316157717d2.html)** |
+| **[Murdaugh Murders: Gag Order Denied](https://www.fitsnews.com/2022/08/02/murdaugh-murders-gag-order-denied/)** |
 | **August 3, 2022**|
-| [Pinckneys And Other Victims of Alex Murdaugh Settle With Bank And Law Firm, Lawyer Says](https://www.fitsnews.com/2022/08/03/pinckneys-and-other-victims-of-alex-murdaugh-settle-with-bank-and-law-firm-lawyer-says/) |
+| **[Pinckneys And Other Victims of Alex Murdaugh Settle With Bank And Law Firm, Lawyer Says](https://www.fitsnews.com/2022/08/03/pinckneys-and-other-victims-of-alex-murdaugh-settle-with-bank-and-law-firm-lawyer-says/)** |
 | **August 4, 2022**|
 | [Editorial: A rare SC win for open government](https://www.postandcourier.com/opinion/editorials/editorial-a-rare-sc-win-for-open-government/article_1ecc128a-13fd-11ed-840b-ff55c0dcb192.html) |
 | **August 6, 2022** | 
-|[Editorial: Reserve death penalty for worst of the worst](https://www.postandcourier.com/opinion/editorials/editorial-reserve-death-penalty-for-worst-of-the-worst/article_16056dfa-12a8-11ed-920a-77f29b843186.html) |
+|**[Editorial: Reserve death penalty for worst of the worst](https://www.postandcourier.com/opinion/editorials/editorial-reserve-death-penalty-for-worst-of-the-worst/article_16056dfa-12a8-11ed-920a-77f29b843186.html)** |
 | **August 8, 2022**|
-| [Greg Parker’s Backdoor-ing For Journalist’s Texts Reaches A New Level Of Desperation](https://www.fitsnews.com/2022/08/08/greg-parkers-backdoor-ing-for-journalists-texts-reaches-a-new-level-of-desperation/) |
+| **[Greg Parker’s Backdoor-ing For Journalist’s Texts Reaches A New Level Of Desperation](https://www.fitsnews.com/2022/08/08/greg-parkers-backdoor-ing-for-journalists-texts-reaches-a-new-level-of-desperation/)** |
 | **August 9, 2022**|
-| [Alex Murdaugh’s Attorneys Push For Delay Of Civil Trial While Murder Charges Are Pending](https://www.fitsnews.com/2022/08/09/alex-murdaughs-attorneys-push-for-delay-of-civil-trial-while-murder-charges-are-pending/) |
-| [The Buster Murdaugh ‘Charm Offensive’](https://www.fitsnews.com/2022/08/09/the-buster-murdaugh-charm-offensive/) |
+| **[Alex Murdaugh’s Attorneys Push For Delay Of Civil Trial While Murder Charges Are Pending](https://www.fitsnews.com/2022/08/09/alex-murdaughs-attorneys-push-for-delay-of-civil-trial-while-murder-charges-are-pending/)** |
+| **[The Buster Murdaugh ‘Charm Offensive’](https://www.fitsnews.com/2022/08/09/the-buster-murdaugh-charm-offensive/)** |
 | **August 10, 2022**|
-| [CityWatch: Murdaugh trial judge stands up for the law — and up to the lawyers](https://www.postandcourier.com/columbia/opinion/citywatch-murdaugh-trial-judge-stands-up-for-the-law-and-up-to-the-lawyers/article_3002e808-172c-11ed-874e-7b444456f4a9.html) |
-| [Murdaugh boat crash civil trial delayed; judge cites death of attorney](https://www.postandcourier.com/murdaugh-updates/murdaugh-boat-crash-civil-trial-delayed-judge-cites-death-of-attorney/article_ff0544f0-1733-11ed-9f1a-a377d300c0ed.html) |
-| [Murdaugh Murders: Attorneys Spar Over Attempt To Delay Civil Trial](https://www.fitsnews.com/2022/08/10/murdaugh-murders-attorneys-spar-over-attempt-to-delay-civil-trial/) |
+| **[CityWatch: Murdaugh trial judge stands up for the law — and up to the lawyers](https://www.postandcourier.com/columbia/opinion/citywatch-murdaugh-trial-judge-stands-up-for-the-law-and-up-to-the-lawyers/article_3002e808-172c-11ed-874e-7b444456f4a9.html)** |
+| **[Murdaugh boat crash civil trial delayed; judge cites death of attorney](https://www.postandcourier.com/murdaugh-updates/murdaugh-boat-crash-civil-trial-delayed-judge-cites-death-of-attorney/article_ff0544f0-1733-11ed-9f1a-a377d300c0ed.html)** |
+| **[Murdaugh Murders: Attorneys Spar Over Attempt To Delay Civil Trial](https://www.fitsnews.com/2022/08/10/murdaugh-murders-attorneys-spar-over-attempt-to-delay-civil-trial/)** |
 | **August 11, 2022**|
-| [Murdaugh Murders: Evidence Against Alex Murdaugh Headed To Defense Attorneys](https://www.fitsnews.com/2022/08/11/murdaugh-murders-evidence-against-alex-murdaugh-headed-to-defense-attorneys/) |
+| **[Murdaugh Murders: Evidence Against Alex Murdaugh Headed To Defense Attorneys](https://www.fitsnews.com/2022/08/11/murdaugh-murders-evidence-against-alex-murdaugh-headed-to-defense-attorneys/)** |
 | 14th Circuit Solicitor Duffie Stone sends a letter to South Carolina Attorney General Alan Wilson stating he intends to recuse himself from the investigations into the deaths of Maggie and Paul Murdaugh. |
-| [Judge jails alleged Murdaugh accomplice who violated house arrest](https://www.postandcourier.com/murdaugh-updates/judge-jails-alleged-murdaugh-accomplice-who-violated-house-arrest/article_c7d52a0e-199a-11ed-8f1a-8f19ce6e65ce.html) |
-| [Murdaugh Murders: Curtis ‘Eddie’ Smith’s Bond Revoked](https://www.fitsnews.com/2022/08/11/murdaugh-murders-curtis-eddie-smiths-bond-revoked/) |
+| **[Judge jails alleged Murdaugh accomplice who violated house arrest](https://www.postandcourier.com/murdaugh-updates/judge-jails-alleged-murdaugh-accomplice-who-violated-house-arrest/article_c7d52a0e-199a-11ed-8f1a-8f19ce6e65ce.html) |
+| **[Murdaugh Murders: Curtis ‘Eddie’ Smith’s Bond Revoked](https://www.fitsnews.com/2022/08/11/murdaugh-murders-curtis-eddie-smiths-bond-revoked/)** |
 | **August 12, 2022**|
-| [Meet Spencer Roberts: The Newest ‘Murdaugh Murders’ Defendant](https://www.fitsnews.com/2022/08/12/meet-spencer-roberts-the-newest-murdaugh-murders-suspect/) |
+| **[Meet Spencer Roberts: The Newest ‘Murdaugh Murders’ Defendant](https://www.fitsnews.com/2022/08/12/meet-spencer-roberts-the-newest-murdaugh-murders-suspect/)** |
 | **August 13, 2022**|
-| [Murdaugh Murders Civil Saga: Greg Parker Admits It](https://www.fitsnews.com/2022/08/13/murdaugh-murders-civil-saga-greg-parker-admits-it/) |
+| **[Murdaugh Murders Civil Saga: Greg Parker Admits It](https://www.fitsnews.com/2022/08/13/murdaugh-murders-civil-saga-greg-parker-admits-it/)** |
 |  **August 16, 2022**|
-| [Money Laundering 101](https://www.fitsnews.com/2022/08/16/money-laundering-101/) |
+| **[Money Laundering 101](https://www.fitsnews.com/2022/08/16/money-laundering-101/)** |
 |  **August 17, 2022**|
-| [Murdaugh Murders: Dick Harpootlian Press Conference Livestream](https://www.fitsnews.com/2022/08/17/murdaugh-murders-dick-harpootlian-press-conference-livestream/) |
-| [Statement from Attorney General Alan Wilson on allegation of leaked information in Murdaugh case](https://www.scag.gov/about-the-office/news/statement-from-attorney-general-alan-wilson-on-allegation-of-leaked-information-in-murdaugh-case/)  |
-| Statement from Attorney General Alan Wilson on allegation of leaked information in Murdaugh case](https://www.scag.gov/about-the-office/news/statement-from-attorney-general-alan-wilson-on-allegation-of-leaked-information-in-murdaugh-case/) |
-| [Murdaugh attorneys accuse AG of leaks, withholding evidence in double-murder case](https://www.postandcourier.com/murdaugh-updates/murdaugh-attorneys-accuse-ag-of-leaks-withholding-evidence-in-double-murder-case/article_831163de-1dd6-11ed-b9b0-9329239e9841.html) |
-| [Murdaugh Murders: Dick Harpootlian Slams Attorney General For Leaks, Abuse Of State Grand Jury](https://www.fitsnews.com/2022/08/17/murdaugh-murders-defense-motion-slams-attorney-general-for-leaks-abuse-of-state-grand-jury/) |
-| [Murdaugh Murders: New Federal Charge Filed Against Russell Laffitte](https://www.fitsnews.com/2022/08/17/murdaugh-murders-new-federal-charge-filed-against-russell-laffitte/) |
-| [Statement From Will Folks On Dick Harpootlian’s Press Conference](https://www.fitsnews.com/2022/08/17/statement-from-will-folks-on-dick-harpootlians-press-conference/) |
+| **[Murdaugh Murders: Dick Harpootlian Press Conference Livestream](https://www.fitsnews.com/2022/08/17/murdaugh-murders-dick-harpootlian-press-conference-livestream/)** |
+| **[Statement from Attorney General Alan Wilson on allegation of leaked information in Murdaugh case](https://www.scag.gov/about-the-office/news/statement-from-attorney-general-alan-wilson-on-allegation-of-leaked-information-in-murdaugh-case/)**  |
+| **[Statement from Attorney General Alan Wilson on allegation of leaked information in Murdaugh case](https://www.scag.gov/about-the-office/news/statement-from-attorney-general-alan-wilson-on-allegation-of-leaked-information-in-murdaugh-case/)** |
+| **[Murdaugh attorneys accuse AG of leaks, withholding evidence in double-murder case](https://www.postandcourier.com/murdaugh-updates/murdaugh-attorneys-accuse-ag-of-leaks-withholding-evidence-in-double-murder-case/article_831163de-1dd6-11ed-b9b0-9329239e9841.html)** |
+| **[Murdaugh Murders: Dick Harpootlian Slams Attorney General For Leaks, Abuse Of State Grand Jury](https://www.fitsnews.com/2022/08/17/murdaugh-murders-defense-motion-slams-attorney-general-for-leaks-abuse-of-state-grand-jury/)** |
+| **[Murdaugh Murders: New Federal Charge Filed Against Russell Laffitte](https://www.fitsnews.com/2022/08/17/murdaugh-murders-new-federal-charge-filed-against-russell-laffitte/)** |
+| **[Statement From Will Folks On Dick Harpootlian’s Press Conference](https://www.fitsnews.com/2022/08/17/statement-from-will-folks-on-dick-harpootlians-press-conference/)** |
 | **August 18, 2022**|
-| [Lindsey Edwards: SLED Interviews Former Sex Worker In Connection With ‘Murdaugh Murders’ Investigation](https://www.fitsnews.com/2022/08/18/lindsey-edwards-sled-interviews-former-sex-worker-in-connection-with-murdaugh-murders-investigation/) |
-| [Murdaugh Civil Case: Attorney For Mallory Beach’s Family Moves To Quash Subpoena](https://www.fitsnews.com/2022/08/18/murdaugh-civil-case-attorney-for-mallory-beachs-family-moves-to-quash-subpoena/) |
-| [South Carolina Minority Leader Hires ‘Murdaugh Murders’ Prosecutor](https://www.fitsnews.com/2022/08/18/south-carolina-minority-leader-hires-murdaugh-murders-prosecutor/) |
+| **[Lindsey Edwards: SLED Interviews Former Sex Worker In Connection With ‘Murdaugh Murders’ Investigation](https://www.fitsnews.com/2022/08/18/lindsey-edwards-sled-interviews-former-sex-worker-in-connection-with-murdaugh-murders-investigation/)** |
+| **[Murdaugh Civil Case: Attorney For Mallory Beach’s Family Moves To Quash Subpoena](https://www.fitsnews.com/2022/08/18/murdaugh-civil-case-attorney-for-mallory-beachs-family-moves-to-quash-subpoena/)* |
+| **[South Carolina Minority Leader Hires ‘Murdaugh Murders’ Prosecutor](https://www.fitsnews.com/2022/08/18/south-carolina-minority-leader-hires-murdaugh-murders-prosecutor/)** |
 | **August 19, 2022**|
-| [Another Round Of Financial Crime Indictments For Alex Murdaugh](https://www.fitsnews.com/2022/08/19/another-round-of-financial-crime-indictments-for-alex-murdaugh/) |
+| **[Another Round Of Financial Crime Indictments For Alex Murdaugh](https://www.fitsnews.com/2022/08/19/another-round-of-financial-crime-indictments-for-alex-murdaugh/)** |
 | Attorney General Alan Wilson announces State Grand Jury issues new indictments against Richard Alexander Murdaugh |
-| [Attorney General Alan Wilson announces State Grand Jury issues new indictments against Richard Alexander Murdaugh](https://www.scag.gov/about-the-office/news/attorney-general-alan-wilson-announces-state-grand-jury-issues-new-indictments-against-richard-alexander-murdaugh/) |
-| [Alex Murdaugh accused of stealing from brother, former law firm in new indictments](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-accused-of-stealing-from-brother-former-law-firm-in-new-indictments/article_e07b73ea-1fc3-11ed-a9b9-c3f7b3681965.html) |
+| **[Attorney General Alan Wilson announces State Grand Jury issues new indictments against Richard Alexander Murdaugh](https://www.scag.gov/about-the-office/news/attorney-general-alan-wilson-announces-state-grand-jury-issues-new-indictments-against-richard-alexander-murdaugh/)** |
+| **[Alex Murdaugh accused of stealing from brother, former law firm in new indictments](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-accused-of-stealing-from-brother-former-law-firm-in-new-indictments/article_e07b73ea-1fc3-11ed-a9b9-c3f7b3681965.html)** |
 | **August 20, 2022**|
-| [Murdaugh Saga: Greg Parker Has Another New Lawyer](https://www.fitsnews.com/2022/08/20/murdaugh-saga-greg-parker-has-another-new-lawyer/) |
+| **[Murdaugh Saga: Greg Parker Has Another New Lawyer](https://www.fitsnews.com/2022/08/20/murdaugh-saga-greg-parker-has-another-new-lawyer/)** |
 | **August 22, 2022**|
-| [Murdaugh attorneys double down on leak claims in double-murder case, citing phone video](https://www.postandcourier.com/murdaugh-updates/murdaugh-attorneys-double-down-on-leak-claims-in-double-murder-case-citing-phone-video/article_748c5016-2241-11ed-8b4c-b734d0b5212b.html) |
-| [Murdaugh Murders Saga: Dick Harpootlian Subpoenas SLED In Murder Investigation](https://www.fitsnews.com/2022/08/22/murdaugh-murders-dick-harpootlian-says-south-carolina-prosecutors-selectively-leaked-information-about-evidence/) |
+| **[Murdaugh attorneys double down on leak claims in double-murder case, citing phone video](https://www.postandcourier.com/murdaugh-updates/murdaugh-attorneys-double-down-on-leak-claims-in-double-murder-case-citing-phone-video/article_748c5016-2241-11ed-8b4c-b734d0b5212b.html)** |
+| **[Murdaugh Murders Saga: Dick Harpootlian Subpoenas SLED In Murder Investigation](https://www.fitsnews.com/2022/08/22/murdaugh-murders-dick-harpootlian-says-south-carolina-prosecutors-selectively-leaked-information-about-evidence/)** |
 | **August 24, 2022**|
-| [Alleged Murdaugh accomplice Russell Laffitte appears in court on new fraud charge](https://www.postandcourier.com/murdaugh-updates/alleged-murdaugh-accomplice-russell-laffitte-appears-in-court-on-new-fraud-charge/article_b50b7c20-23ae-11ed-a81e-db7450b9c1cd.html) |
-| [Sisters sue Palmetto State Bank, former CEO over looted trust account](https://www.postandcourier.com/murdaugh-updates/sisters-sue-palmetto-state-bank-former-ceo-over-looted-trust-account/article_29b39a94-1cc0-11ed-93c6-4b6af0f34907.html) |
+| **[Alleged Murdaugh accomplice Russell Laffitte appears in court on new fraud charge](https://www.postandcourier.com/murdaugh-updates/alleged-murdaugh-accomplice-russell-laffitte-appears-in-court-on-new-fraud-charge/article_b50b7c20-23ae-11ed-a81e-db7450b9c1cd.html)**|
+| **[Sisters sue Palmetto State Bank, former CEO over looted trust account](https://www.postandcourier.com/murdaugh-updates/sisters-sue-palmetto-state-bank-former-ceo-over-looted-trust-account/article_29b39a94-1cc0-11ed-93c6-4b6af0f34907.html)** |
 | **August 25, 2022**|
-| [Murdaugh lawyers subpoena SLED for evidence, testimony in double-murder case](https://www.postandcourier.com/murdaugh-updates/murdaugh-lawyers-subpoena-sled-for-evidence-testimony-in-double-murder-case/article_a37a0a98-24ae-11ed-a367-db1e122cbb0e.html) |
+| **[Murdaugh lawyers subpoena SLED for evidence, testimony in double-murder case](https://www.postandcourier.com/murdaugh-updates/murdaugh-lawyers-subpoena-sled-for-evidence-testimony-in-double-murder-case/article_a37a0a98-24ae-11ed-a367-db1e122cbb0e.html)** |
 | **August 27, 2022**|
-| [Murdaugh Murders Saga: What Does Dick Harpootlian Have Up His Sleeve?](https://www.fitsnews.com/2022/08/27/murdaugh-murders-saga-what-does-dick-harpootlian-have-up-his-sleeve/) |
+| **[Murdaugh Murders Saga: What Does Dick Harpootlian Have Up His Sleeve?](https://www.fitsnews.com/2022/08/27/murdaugh-murders-saga-what-does-dick-harpootlian-have-up-his-sleeve/)** |
 | **August 29, 2022**|
-| [Sparks fly over Murdaugh murder evidence as prosecutors, defense attorneys spar in court](https://www.postandcourier.com/murdaugh-updates/sparks-fly-over-murdaugh-murder-evidence-as-prosecutors-defense-attorneys-spar-in-court/article_f2d948ce-249f-11ed-9b75-8f49b959577d.html) |
-| [Murdaugh Murders Saga: Fireworks In Court After Dick Harpootlian Drops Bombshell Motion](https://www.fitsnews.com/2022/08/29/murdaugh-murders-saga-fireworks-in-court-after-dick-harpootlian-drops-bombshell-motion/) |
-| [‘Murdaugh Murders’ Courtroom Drama – Full 8/29/2022 Hearing](https://www.fitsnews.com/2022/08/29/murdaugh-murders-courtroom-drama-full-8-29-2022-hearing/) |
+| **[Sparks fly over Murdaugh murder evidence as prosecutors, defense attorneys spar in court](https://www.postandcourier.com/murdaugh-updates/sparks-fly-over-murdaugh-murder-evidence-as-prosecutors-defense-attorneys-spar-in-court/article_f2d948ce-249f-11ed-9b75-8f49b959577d.html)** |
+| **[Murdaugh Murders Saga: Fireworks In Court After Dick Harpootlian Drops Bombshell Motion](https://www.fitsnews.com/2022/08/29/murdaugh-murders-saga-fireworks-in-court-after-dick-harpootlian-drops-bombshell-motion/)** |
+| **[‘Murdaugh Murders’ Courtroom Drama – Full 8/29/2022 Hearing](https://www.fitsnews.com/2022/08/29/murdaugh-murders-courtroom-drama-full-8-29-2022-hearing/)** |
 | **August 30, 2022**|
-| [‘Murdaugh Murders’ Saga: Lowcountry Search Tied To Double Homicide Investigation](https://www.fitsnews.com/2022/08/30/murdaugh-murders-saga-lowcountry-search-tied-to-double-homicide-investigation/) |
+| [‘Murdaugh Murders’ Saga: Lowcountry Search Tied To Double Homicide Investigation](https://www.fitsnews.com/2022/08/30/murdaugh-murders-saga-lowcountry-search-tied-to-double-homicide-investigation/)** |
 | **August 31, 2022**|
-| [Murdaugh Murders Saga: Update On Law Enforcement’s Lowcountry River Search](https://www.fitsnews.com/2022/08/31/murdaugh-murders-saga-update-on-law-enforcements-lowcountry-river-search/) |
-| [‘Murdaugh Murders’ Boat Crash Lawsuit: Mediation Hearing ‘Fails Spectacularly’](https://www.fitsnews.com/2022/08/31/murdaugh-murders-boat-crash-lawsuit-mediation-hearing-fails-spectacularly/) |
+| **[Murdaugh Murders Saga: Update On Law Enforcement’s Lowcountry River Search](https://www.fitsnews.com/2022/08/31/murdaugh-murders-saga-update-on-law-enforcements-lowcountry-river-search/)** |
+| **[‘Murdaugh Murders’ Boat Crash Lawsuit: Mediation Hearing ‘Fails Spectacularly’](https://www.fitsnews.com/2022/08/31/murdaugh-murders-boat-crash-lawsuit-mediation-hearing-fails-spectacularly/)** |
 | **September 2, 2022**|
-| [Murdaugh cases overseen by SC Judge Clifton Newman, who rose from segregated schools to bench](https://www.postandcourier.com/murdaugh-updates/murdaugh-cases-overseen-by-sc-judge-clifton-newman-who-rose-from-segregated-schools-to-bench/article_5362907c-285d-11ed-b179-b342b724b1dd.html) |
-| [Murdaugh Murders: Feds Come Down Hard On Russell Laffitte, Accuse Him Of Lying To FBI](https://www.fitsnews.com/2022/09/02/murdaugh-murders-feds-come-down-hard-on-russell-laffitte-accusing-him-of-lying-to-fbi/) |
+| **[Murdaugh cases overseen by SC Judge Clifton Newman, who rose from segregated schools to bench](https://www.postandcourier.com/murdaugh-updates/murdaugh-cases-overseen-by-sc-judge-clifton-newman-who-rose-from-segregated-schools-to-bench/article_5362907c-285d-11ed-b179-b342b724b1dd.html)** |
+| **[Murdaugh Murders: Feds Come Down Hard On Russell Laffitte, Accuse Him Of Lying To FBI](https://www.fitsnews.com/2022/09/02/murdaugh-murders-feds-come-down-hard-on-russell-laffitte-accusing-him-of-lying-to-fbi/)** |
 | **September 6, 2022**|
-| [Murdaugh co-defendant Laffitte calls himself unwitting enabler who ‘rarely’ asked questions](https://www.postandcourier.com/murdaugh-updates/murdaugh-co-defendant-laffitte-calls-himself-unwitting-enabler-who-rarely-asked-questions/article_d3660da0-2d7e-11ed-8c45-6f0b411a0226.html) |
+| **[Murdaugh co-defendant Laffitte calls himself unwitting enabler who ‘rarely’ asked questions](https://www.postandcourier.com/murdaugh-updates/murdaugh-co-defendant-laffitte-calls-himself-unwitting-enabler-who-rarely-asked-questions/article_d3660da0-2d7e-11ed-8c45-6f0b411a0226.html)** |
 | **September 7, 2022**|
-| [Boat crash lawsuit against Parker’s headed to trial in October - without the Murdaughs](https://www.postandcourier.com/murdaugh-updates/boat-crash-lawsuit-against-parkers-headed-to-trial-in-october---without-the-murdaughs/article_1ee67ec0-2eb2-11ed-b12a-e739c78ef220.html) |
-| [‘Murdaugh Murders’ Saga: Judge Severs Defendants In Wrongful Death Case](https://www.fitsnews.com/2022/09/07/murdaugh-murders-saga-judge-severs-defendants-in-wrongful-death-case/) |
+| **[Boat crash lawsuit against Parker’s headed to trial in October - without the Murdaughs](https://www.postandcourier.com/murdaugh-updates/boat-crash-lawsuit-against-parkers-headed-to-trial-in-october---without-the-murdaughs/article_1ee67ec0-2eb2-11ed-b12a-e739c78ef220.html)** |
+| **[‘Murdaugh Murders’ Saga: Judge Severs Defendants In Wrongful Death Case](https://www.fitsnews.com/2022/09/07/murdaugh-murders-saga-judge-severs-defendants-in-wrongful-death-case/)** |
 | **September 9, 2022**|
-| [‘Murdaugh Murders’ Saga: First Wrongful Death Case Now Scheduled For January](https://www.fitsnews.com/2022/09/09/murdaugh-murders-saga-first-wrongful-death-case-now-scheduled-for-january/) |
-| [‘Murdaugh Murders’ Saga: First Wrongful Death Case Now Scheduled For January](https://www.fitsnews.com/2022/09/09/murdaugh-murders-saga-first-wrongful-death-case-now-scheduled-for-january/) |
+| **[‘Murdaugh Murders’ Saga: First Wrongful Death Case Now Scheduled For January](https://www.fitsnews.com/2022/09/09/murdaugh-murders-saga-first-wrongful-death-case-now-scheduled-for-january/)** |
+| **[‘Murdaugh Murders’ Saga: First Wrongful Death Case Now Scheduled For January](https://www.fitsnews.com/2022/09/09/murdaugh-murders-saga-first-wrongful-death-case-now-scheduled-for-january/)** |
 | **September 12, 2022**|
-| [Alex Murdaugh co-defendant Russell Laffitte scheduled to stand trial Nov. 8 in Charleston](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-co-defendant-russell-laffitte-scheduled-to-stand-trial-nov-8-in-charleston/article_53f0db4e-32de-11ed-b282-3790359c4a81.html) |
-| [‘Murdaugh Murders’ Saga: Forge Consulting Fires Back](https://www.fitsnews.com/2022/09/12/murdaugh-murders-saga-forge-consulting-fires-back/) |
-| [‘Murdaugh Murders’ Saga: Key Ruling In Boat Crash Lawsuit Likely Headed For Appeal](https://www.fitsnews.com/2022/09/13/murdaugh-murders-saga-key-ruling-in-boat-crash-lawsuit-likely-headed-for-appeal/) |
-| September 13, 2022|
+| **[Alex Murdaugh co-defendant Russell Laffitte scheduled to stand trial Nov. 8 in Charleston](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-co-defendant-russell-laffitte-scheduled-to-stand-trial-nov-8-in-charleston/article_53f0db4e-32de-11ed-b282-3790359c4a81.html)** |
+| **[‘Murdaugh Murders’ Saga: Forge Consulting Fires Back](https://www.fitsnews.com/2022/09/12/murdaugh-murders-saga-forge-consulting-fires-back/)** |
+| **[‘Murdaugh Murders’ Saga: Key Ruling In Boat Crash Lawsuit Likely Headed For Appeal](https://www.fitsnews.com/2022/09/13/murdaugh-murders-saga-key-ruling-in-boat-crash-lawsuit-likely-headed-for-appeal/)** |
+| **September 13, 2022** |
 |[‘Murdaugh Murders’ Saga: The Masquerade Ball?](https://www.fitsnews.com/2022/09/13/murdaugh-murders-saga-the-masquerade-ball/) |
 | **September 15, 2022**|
-| [Beach attorney threatens appeal as judge seeks January trial in Murdaugh boat crash case](https://www.postandcourier.com/murdaugh-updates/beach-attorney-threatens-appeal-as-judge-seeks-january-trial-in-murdaugh-boat-crash-case/article_55426994-3460-11ed-a0e6-0f92a5179801.html) |
-| Beyond the Headlines: The Murdaugh murders](https://www.postandcourier.com/beyond-the-headlines/beyond-the-headlines-the-murdaugh-murders/article_2424b480-3527-11ed-9a62-b34dab3e5090.html) |
+| **[Beach attorney threatens appeal as judge seeks January trial in Murdaugh boat crash case](https://www.postandcourier.com/murdaugh-updates/beach-attorney-threatens-appeal-as-judge-seeks-january-trial-in-murdaugh-boat-crash-case/article_55426994-3460-11ed-a0e6-0f92a5179801.html)** |
+| **[Beyond the Headlines: The Murdaugh murders](https://www.postandcourier.com/beyond-the-headlines/beyond-the-headlines-the-murdaugh-murders/article_2424b480-3527-11ed-9a62-b34dab3e5090.html)** |
 | **September 18, 2022**|
-| [Alex Murdaugh’s jailhouse tapes have dried up. What did they tell us?](https://www.postandcourier.com/murdaugh-updates/alex-murdaughs-jailhouse-tapes-have-dried-up-what-did-they-tell-us/article_e103cea8-3061-11ed-a207-57bb967ad471.html) |
+| **[Alex Murdaugh’s jailhouse tapes have dried up. What did they tell us?](https://www.postandcourier.com/murdaugh-updates/alex-murdaughs-jailhouse-tapes-have-dried-up-what-did-they-tell-us/article_e103cea8-3061-11ed-a207-57bb967ad471.html)** |
 | **September 20, 2022**|
-| [‘Murdaugh Murders’ Saga: Scrutiny Of Greg Alexander Ramps Up](https://www.fitsnews.com/2022/09/20/murdaugh-murders-saga-scrutiny-of-greg-alexander-ramps-up/) |
+| **[‘Murdaugh Murders’ Saga: Scrutiny Of Greg Alexander Ramps Up](https://www.fitsnews.com/2022/09/20/murdaugh-murders-saga-scrutiny-of-greg-alexander-ramps-up/) **|
 | **September 21, 2022**|
-| [‘Murdaugh Murders’ Saga: Alex Murdaugh’s Defense Attorneys Have Gone Quiet](https://www.fitsnews.com/2022/09/21/murdaugh-murders-saga-alex-murdaughs-defense-attorneys-have-gone-quiet/) |
+| **[‘Murdaugh Murders’ Saga: Alex Murdaugh’s Defense Attorneys Have Gone Quiet](https://www.fitsnews.com/2022/09/21/murdaugh-murders-saga-alex-murdaughs-defense-attorneys-have-gone-quiet/)** |
 | **September 21, 2022**|
-| [‘Murdaugh Murders’ Saga: New Federal Indictment Against Russell Laffitte](https://www.fitsnews.com/2022/09/21/murdaugh-murders-saga-new-federal-indictments-against-russell-laffitte/) |
+| **[‘Murdaugh Murders’ Saga: New Federal Indictment Against Russell Laffitte](https://www.fitsnews.com/2022/09/21/murdaugh-murders-saga-new-federal-indictments-against-russell-laffitte/) |
 | **September 23, 2022**|
-| [Editorial: SC lawmakers should end judge shopping, boost oversight on settlement sales](https://www.postandcourier.com/opinion/editorials/editorial-sc-lawmakers-should-end-judge-shopping-boost-oversight-on-settlement-sales/article_fe471d72-39c5-11ed-a1d3-a3042569aeea.html) |
-| [‘Murdaugh Murders’ Saga: Alex Murdaugh’s Defense Attorneys Seek Subpoena Powers](https://www.fitsnews.com/2022/09/23/murdaugh-murders-saga-alex-murdaughs-defense-attorneys-seek-subpoena-powers/) |
+| **[Editorial: SC lawmakers should end judge shopping, boost oversight on settlement sales](https://www.postandcourier.com/opinion/editorials/editorial-sc-lawmakers-should-end-judge-shopping-boost-oversight-on-settlement-sales/article_fe471d72-39c5-11ed-a1d3-a3042569aeea.html)** |
+| **[‘Murdaugh Murders’ Saga: Alex Murdaugh’s Defense Attorneys Seek Subpoena Powers](https://www.fitsnews.com/2022/09/23/murdaugh-murders-saga-alex-murdaughs-defense-attorneys-seek-subpoena-powers/)** |
 | **September 24, 2022**|
-| [The estate where Maggie and Paul Murdaugh died is under contract. Is that creepy?](https://www.postandcourier.com/murdaugh-updates/the-estate-where-maggie-and-paul-murdaugh-died-is-under-contract-is-that-creepy/article_0c7e30f4-3464-11ed-91fd-73fbaffb60f4.html) |
-| [‘Murdaugh Murders’ Saga: Alex Murdaugh’s Alleged Proffers Receive Scrutiny](https://www.fitsnews.com/2022/09/24/murdaugh-murders-saga-alex-murdaughs-alleged-proffers-receive-scrutiny/) |
+| **[The estate where Maggie and Paul Murdaugh died is under contract. Is that creepy?](https://www.postandcourier.com/murdaugh-updates/the-estate-where-maggie-and-paul-murdaugh-died-is-under-contract-is-that-creepy/article_0c7e30f4-3464-11ed-91fd-73fbaffb60f4.html)** |
+| **[‘Murdaugh Murders’ Saga: Alex Murdaugh’s Alleged Proffers Receive Scrutiny](https://www.fitsnews.com/2022/09/24/murdaugh-murders-saga-alex-murdaughs-alleged-proffers-receive-scrutiny/)** |
 |  **September 27, 2022**|
 | [‘Murdaugh Murders’ Saga: Judge Reverses Himself On Severing Boat Crash Defendants](https://www.fitsnews.com/2022/09/27/murdaugh-murders-saga-judge-reverses-himself-on-severing-boat-crash-defendants/) |
-| [Judge reverses decision to separate Parker’s from Murdaugh boat crash case](https://www.postandcourier.com/murdaugh-updates/judge-reverses-decision-to-separate-parkers-from-murdaugh-boat-crash-case/article_d4569a60-3e84-11ed-b0d6-b70c45b29ea5.html) |
-| [‘Murdaugh Murders’ Saga: Judge Reverses Himself On Severing Boat Crash Defendants](https://www.fitsnews.com/2022/09/27/murdaugh-murders-saga-judge-reverses-himself-on-severing-boat-crash-defendants/) |
+| **[Judge reverses decision to separate Parker’s from Murdaugh boat crash case](https://www.postandcourier.com/murdaugh-updates/judge-reverses-decision-to-separate-parkers-from-murdaugh-boat-crash-case/article_d4569a60-3e84-11ed-b0d6-b70c45b29ea5.html)** |
+| **[‘Murdaugh Murders’ Saga: Judge Reverses Himself On Severing Boat Crash Defendants](https://www.fitsnews.com/2022/09/27/murdaugh-murders-saga-judge-reverses-himself-on-severing-boat-crash-defendants/)** |
 | **September 28, 2022**|
-| [‘Murdaugh Murders’ Saga: Russell Laffitte’s Federal Case Points To Broader Financial Crimes Conspiracy](https://www.fitsnews.com/2022/09/28/murdaugh-murders-saga-russell-laffittes-federal-case-points-to-broader-financial-crimes-conspiracy/) |
-| **October 2, 2022**|
-| [Questions, complaints linger over state judge’s role in Murdaugh saga](https://www.postandcourier.com/murdaugh-updates/questions-complaints-linger-over-state-judges-role-in-murdaugh-saga/article_ca712be6-40c3-11ed-8a48-4b5c2e2a0e5b.html) |
+| **[‘Murdaugh Murders’ Saga: Russell Laffitte’s Federal Case Points To Broader Financial Crimes Conspiracy](https://www.fitsnews.com/2022/09/28/murdaugh-murders-saga-russell-laffittes-federal-case-points-to-broader-financial-crimes-conspiracy/) |
+| **October 2, 2022**|**
+| **[Questions, complaints linger over state judge’s role in Murdaugh saga](https://www.postandcourier.com/murdaugh-updates/questions-complaints-linger-over-state-judges-role-in-murdaugh-saga/article_ca712be6-40c3-11ed-8a48-4b5c2e2a0e5b.html)** |
 | **October 3, 2022**|
-| [‘Murdaugh Murders’ Saga: Feds Fire Back At Russell Laffitte](https://www.fitsnews.com/2022/10/03/murdaugh-murders-saga-feds-fire-back-at-russell-laffitte/) |
+| **[‘Murdaugh Murders’ Saga: Feds Fire Back At Russell Laffitte](https://www.fitsnews.com/2022/10/03/murdaugh-murders-saga-feds-fire-back-at-russell-laffitte/)** |
 | **October 5, 2022**|
 | [‘Murdaugh Murders’ Saga: Attorney General’s Office Blasts ‘Unprecedented’ Subpoena Request From Alex Murdaugh’s Lawyers](https://www.fitsnews.com/2022/10/05/murdaugh-murders-saga-attorney-generals-office-blasts-unprecedented-subpoena-request-from-alex-murdaughs-lawyers/) |
 | **October 6, 2022**|
