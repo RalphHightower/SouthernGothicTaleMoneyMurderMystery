@@ -44,7 +44,7 @@
 | **October 28, 2019**  |
 | **[Beaufort South Carolina Boating Death Case: Bombshells Looming](https://www.fitsnews.com/2019/10/28/beaufort-south-carolina-boating-death-case-bombshells-looming/)** |
 | **January 9, 2020**  |
-| **[Lawsuit Against Powerful SC Family Could Be Moved From ‘Judicial Hell Hole’](https://www.fitsnews.com/2020/01/09/lawsuit-against-murdaugh-family-could-be-moved-from-judicial-hell-hole/) |
+| **[Lawsuit Against Powerful SC Family Could Be Moved From ‘Judicial Hell Hole’](https://www.fitsnews.com/2020/01/09/lawsuit-against-murdaugh-family-could-be-moved-from-judicial-hell-hole/)** |
 | **[Beaufort County Boat Crash: New Documents Filed In Mallory Beach Lawsuit](https://www.fitsnews.com/2020/01/21/beaufort-county-boat-crash-new-documents-filed-in-mallory-beach-lawsuit/)** |
 | **February 29, 2020** |
 | **[More Than 100 Pages Of Documents Released In Lawsuit Against Powerful SC Family](https://www.fitsnews.com/2020/02/29/one-year-after-deadly-beaufort-boat-crash-familys-civil-case-may-remain-in-judicial-hell-hole/)** |
@@ -559,37 +559,37 @@
 | [Questions remain about information, footage reportedly collected on Paul Murdaugh](https://www.postandcourier.com/murdaugh-updates/questions-remain-about-information-footage-reportedly-collected-on-paul-murdaugh/article_6aee946c-b124-11ec-b7bf-4b41d0e11e1e.html) |
 | [Murdaugh Murders: SLED Clarifies Role Of Fourteenth Circuit Solicitor’s Office In Homicide Investigation](https://www.fitsnews.com/2022/03/31/murdaugh-murders-sled-clarifies-role-of-fourteenth-circuit-solicitors-office-in-homicide-investigation/) |
 | **April 1, 2022**|
-| [Recusal Drama: How Duffie Stone’s Failure To Acknowledge Clear Conflict Of Interest Complicates ‘Murdaugh Murders’ Probe](https://www.fitsnews.com/2022/04/01/recusal-timeline-how-duffie-stones-failure-to-acknowledge-clear-conflict-of-interest-has-complicated-murdaugh-murders-investigation/) |
+| **[Recusal Drama: How Duffie Stone’s Failure To Acknowledge Clear Conflict Of Interest Complicates ‘Murdaugh Murders’ Probe](https://www.fitsnews.com/2022/04/01/recusal-timeline-how-duffie-stones-failure-to-acknowledge-clear-conflict-of-interest-has-complicated-murdaugh-murders-investigation/)** |
 | **April 2, 2022**|
-| [Parker’s New Attorneys Object To Alex Murdaugh’s Confession In … Satterfield Case?](https://www.fitsnews.com/2022/04/02/parkers-new-attorneys-object-to-alex-murdaughs-confession-in-satterfield-case/) |
+| **[Parker’s New Attorneys Object To Alex Murdaugh’s Confession In … Satterfield Case?](https://www.fitsnews.com/2022/04/02/parkers-new-attorneys-object-to-alex-murdaughs-confession-in-satterfield-case/)** |
 | **April 5, 2022**|
-| [Parker’s Attorneys Deny Objecting To Confession Of Judgment, Say Satterfield Attorney Threatened Them](https://www.fitsnews.com/2022/04/05/parkers-attorneys-deny-objecting-to-confession-of-judgment-say-satterfield-attorney-threatened-them/) |
+| **[Parker’s Attorneys Deny Objecting To Confession Of Judgment, Say Satterfield Attorney Threatened Them](https://www.fitsnews.com/2022/04/05/parkers-attorneys-deny-objecting-to-confession-of-judgment-say-satterfield-attorney-threatened-them/)** |
 | **April 7, 2022**|
-| [Alex Murdaugh Sent Clients To Palmetto State Bank For High-Interest, Pre-Settlement Loans, Lawyers Say](https://www.fitsnews.com/2022/04/07/alex-murdaugh-sent-clients-to-palmetto-state-bank-for-high-interest-pre-settlement-loans-lawyers-say/) |
+| **[Alex Murdaugh Sent Clients To Palmetto State Bank For High-Interest, Pre-Settlement Loans, Lawyers Say](https://www.fitsnews.com/2022/04/07/alex-murdaugh-sent-clients-to-palmetto-state-bank-for-high-interest-pre-settlement-loans-lawyers-say/)** |
 | **April 8, 2022[^8]**|
-| [Maggie Murdaugh’s Edisto House Will Be Going On The Market Soon](https://www.fitsnews.com/2022/04/08/maggie-murdaughs-edisto-house-will-be-going-on-the-market-soon/)[^8] |
+| **[Maggie Murdaugh’s Edisto House Will Be Going On The Market Soon](https://www.fitsnews.com/2022/04/08/maggie-murdaughs-edisto-house-will-be-going-on-the-market-soon/)[^8]** |
 | **April 11, 2022**|
-| [‘Murdaugh Murders’ Boat Crash Case: Attorney Explores The Maritime Law Angle](https://www.fitsnews.com/2022/04/11/murdaugh-murders-boat-crash-case-attorney-explores-the-maritime-law-angle/) |
+| **[‘Murdaugh Murders’ Boat Crash Case: Attorney Explores The Maritime Law Angle](https://www.fitsnews.com/2022/04/11/murdaugh-murders-boat-crash-case-attorney-explores-the-maritime-law-angle/)** |
 | **April 12, 2022**|
-| [Murdaugh Murders Saga: Pressure Mounting On Stephen Smith Case](https://www.fitsnews.com/2022/04/12/murdaugh-murders-saga-pressure-mounting-on-stephen-smith-case/) |
+| **[Murdaugh Murders Saga: Pressure Mounting On Stephen Smith Case](https://www.fitsnews.com/2022/04/12/murdaugh-murders-saga-pressure-mounting-on-stephen-smith-case/)** |
 | **April 13, 2022**|
-| [Former Bank CEO Russell Laffitte Puts House Up For Sale Amid Murdaugh Investigations](https://www.fitsnews.com/2022/04/13/former-bank-ceo-russell-laffitte-puts-house-up-for-sale-amid-murdaugh-investigations/) |
-| [‘Murdaugh Murders’ Saga: Forensic Team Rises To The Challenge](https://www.fitsnews.com/2022/04/13/murdaugh-murders-saga-forensic-team-rises-to-the-challenge/) |
+| **[Former Bank CEO Russell Laffitte Puts House Up For Sale Amid Murdaugh Investigations](https://www.fitsnews.com/2022/04/13/former-bank-ceo-russell-laffitte-puts-house-up-for-sale-amid-murdaugh-investigations/)** |
+| **[‘Murdaugh Murders’ Saga: Forensic Team Rises To The Challenge](https://www.fitsnews.com/2022/04/13/murdaugh-murders-saga-forensic-team-rises-to-the-challenge/)** |
 | **April 14, 2022**|
-| [Richland Co. Makes Stunning Reversal On Release Of Murdaugh Jail Calls. Wonder Why …](https://www.fitsnews.com/2022/04/14/richland-co-makes-stunning-reversal-on-release-of-murdaugh-jail-calls-wonder-why/) |
+| **[Richland Co. Makes Stunning Reversal On Release Of Murdaugh Jail Calls. Wonder Why …](https://www.fitsnews.com/2022/04/14/richland-co-makes-stunning-reversal-on-release-of-murdaugh-jail-calls-wonder-why/)** |
 | **April 15, 2022**|
-| [‘Murdaugh Murders’ Saga: Financial Probe Metastasizing](https://www.fitsnews.com/2022/04/15/murdaugh-murders-saga-financial-probe-metastasizing/) |
+| **[‘Murdaugh Murders’ Saga: Financial Probe Metastasizing](https://www.fitsnews.com/2022/04/15/murdaugh-murders-saga-financial-probe-metastasizing/)** |
 | **April 18, 2022**|
-| [Murdaugh Saga: Hakeem Pinckney’s Family Attorney Makes Move To Secure Former Bank CEO’s Properties](https://www.fitsnews.com/2022/04/18/murdaugh-saga-hakeem-pinckneys-family-attorney-makes-move-to-secure-former-bank-ceos-properties/) |
+| **[Murdaugh Saga: Hakeem Pinckney’s Family Attorney Makes Move To Secure Former Bank CEO’s Properties](https://www.fitsnews.com/2022/04/18/murdaugh-saga-hakeem-pinckneys-family-attorney-makes-move-to-secure-former-bank-ceos-properties/)** |
 |  **April 22, 2022**|
-| [Liens Against Murdaugh Properties Canceled; Buyers Lined Up For Moselle, Edisto Beach House](https://www.fitsnews.com/2022/04/22/liens-taken-off-murdaugh-properties-buyers-lined-up-for-moselle-edisto-beach-house/) |
+| **[Liens Against Murdaugh Properties Canceled; Buyers Lined Up For Moselle, Edisto Beach House](https://www.fitsnews.com/2022/04/22/liens-taken-off-murdaugh-properties-buyers-lined-up-for-moselle-edisto-beach-house/)** |
 | **April 26, 2022**|
-| [High-Velocity Impact Spatter Directly Ties Alex Murdaugh To Double Homicide, Sources Say](https://www.fitsnews.com/2022/04/26/high-velocity-impact-spatter-directly-ties-alex-murdaugh-to-double-homicide-sources-say/) |
-| [Murdaugh Murders Saga: South Carolina Grand Jury Was Probing Alex Murdaugh’s Finances Prior To Double Homicide](https://www.fitsnews.com/2022/04/26/murdaugh-murders-saga-south-carolina-grand-jury-was-probing-alex-murdaughs-finances-prior-to-double-homicide/) |
+| **[High-Velocity Impact Spatter Directly Ties Alex Murdaugh To Double Homicide, Sources Say](https://www.fitsnews.com/2022/04/26/high-velocity-impact-spatter-directly-ties-alex-murdaugh-to-double-homicide-sources-say/) |
+| **[Murdaugh Murders Saga: South Carolina Grand Jury Was Probing Alex Murdaugh’s Finances Prior To Double Homicide](https://www.fitsnews.com/2022/04/26/murdaugh-murders-saga-south-carolina-grand-jury-was-probing-alex-murdaughs-finances-prior-to-double-homicide/)** |
 |  **April 27, 2022**|
-| [Alex Murdaugh Paid $110K For A Funeral Home In 2020? That Seems … Unusual](https://www.fitsnews.com/2022/04/27/alex-murdaugh-paid-110k-for-a-funeral-home-in-2020-that-seems-unusual/) |
+| **[Alex Murdaugh Paid $110K For A Funeral Home In 2020? That Seems … Unusual](https://www.fitsnews.com/2022/04/27/alex-murdaugh-paid-110k-for-a-funeral-home-in-2020-that-seems-unusual/)** |
 |  **April 28, 2022**|
-| [Maggie Murdaugh Was ‘Lured’ To Moselle On The Night Of Her Murder, Sources Say](https://www.fitsnews.com/2022/04/28/maggie-murdaugh-was-lured-to-moselle-on-the-night-of-her-murder-sources-say/) |
+| **[Maggie Murdaugh Was ‘Lured’ To Moselle On The Night Of Her Murder, Sources Say](https://www.fitsnews.com/2022/04/28/maggie-murdaugh-was-lured-to-moselle-on-the-night-of-her-murder-sources-say/)**|
 |She was hesitant to go, but ultimately decided it was the right thing to do …|
 | As the South Carolina State Law Enforcement Division (SLED) and the office of state attorney general Alan Wilson appear closer to wrapping up the investigation into the murders of Maggie and Paul Murdaugh, more information is emerging about what happened on the night they were killed.|
 |On Tuesday evening, FITSNews exclusively reported that high-velocity impact spatter was present on the shirt Alex Murdaugh was wearing June 7, 2021. This evidence placed him physically at the scene at the time that one or both of his family members were shot. The high-velocity impact spatter — as well as other evidence — also contradicted what the Murdaugh camp was calling Alex Murdaugh’s *“ironclad alibi”* on the night of the murders.|
@@ -605,41 +605,41 @@
 |Multiple sources have told FITSNews that Maggie Murdaugh was not a fearful person, but she did not like staying at Moselle. At the time of her death, Maggie had just completed a redecoration of her Edisto Beach home and was embarking on a project to make Moselle *“more homey.”* There was no indication prior to her death that Maggie feared for her life or Paul’s life — especially as it relates to *“revenge”* for the boat crash or any other incident in which her sons might have been involved, according to multiple sources. Friends of Maggie say that Paul and Buster were the center of her life. Multiple sources have told FITSNews that *“Maggie Murdaugh lived for those boys.”* She knew of their whereabouts at all times, and they knew hers. In fact, Buster had an app on his phone that showed his mother’s location through her phone. It is this app that helped investigators locate her discarded phone in the woods. On the day of her murder, she knew Paul — who worked that day at his uncle’s equipment rental shop and ate dinner with his uncle’s family at their home in Okatie — would be at Moselle that evening.|
 |Paul left Okatie for Moselle at around 6:00 p.m. Maggie is believed to have arrived at Moselle sometime between 7:00 and 7:30 p.m. This new information helps shed light on some of the circumstances surrounding the murders. Sources close to the situation have told FITSNews that this physical evidence *“could have only come from one thing.”* |
 |On the night of June 7, Maggie was shot multiple times with a high-powered rifle. She received a bullet wound to the back of her head while lying face down on the ground, multiple sources have told FITSNews. Paul was killed with a shotgun, which caused multiple injuries. He, too, was shot in the head, according to his death certificate. He was killed with one round of birdshot and one round of buckshot, according to multiple sources.
-| [Journalist claims 1st Amendment rights in Mallory Beach lawsuit](https://www.postandcourier.com/murdaugh-updates/journalist-claims-1st-amendment-rights-in-mallory-beach-lawsuit/article_fd9f8a42-c712-11ec-b499-7f0ac6f94a65.html) |
-| [What Can Blood Spatter Tell Us? Forensic Expert Explains](https://www.fitsnews.com/2022/04/28/what-can-blood-spatter-tell-us-forensic-expert-explains/) |
+| **[Journalist claims 1st Amendment rights in Mallory Beach lawsuit](https://www.postandcourier.com/murdaugh-updates/journalist-claims-1st-amendment-rights-in-mallory-beach-lawsuit/article_fd9f8a42-c712-11ec-b499-7f0ac6f94a65.html)** |
+| **[What Can Blood Spatter Tell Us? Forensic Expert Explains](https://www.fitsnews.com/2022/04/28/what-can-blood-spatter-tell-us-forensic-expert-explains/)** |
 | **April 29, 2022**|
-| [Palmetto State Bank’s Murdaugh ties draw scrutiny from grand jury probes, regulators](https://www.postandcourier.com/murdaugh-updates/palmetto-state-banks-murdaugh-ties-draw-scrutiny-from-grand-jury-probes-regulators/article_15392370-c74a-11ec-b263-77aee3943937.html) |
-| [Funeral Home Tied To Alex Murdaugh Hands Over Documents To Lawyers](https://www.fitsnews.com/2022/04/29/funeral-home-tied-to-alex-murdaugh-hands-over-documents-to-lawyers/) |
+| **[Palmetto State Bank’s Murdaugh ties draw scrutiny from grand jury probes, regulators](https://www.postandcourier.com/murdaugh-updates/palmetto-state-banks-murdaugh-ties-draw-scrutiny-from-grand-jury-probes-regulators/article_15392370-c74a-11ec-b263-77aee3943937.html)** |
+| **[Funeral Home Tied To Alex Murdaugh Hands Over Documents To Lawyers](https://www.fitsnews.com/2022/04/29/funeral-home-tied-to-alex-murdaugh-hands-over-documents-to-lawyers/)** |
 | **May 3, 2022**|
-| [Funeral Home Director Tied To Alex Murdaugh Also Linked To Bizarre Leg-Sawing Case](https://www.fitsnews.com/2022/05/03/funeral-home-director-tied-to-alex-murdaugh-also-linked-to-bizarre-leg-sawing-case/) |
+| **[Funeral Home Director Tied To Alex Murdaugh Also Linked To Bizarre Leg-Sawing Case](https://www.fitsnews.com/2022/05/03/funeral-home-director-tied-to-alex-murdaugh-also-linked-to-bizarre-leg-sawing-case/)** |
 | **May 4, 2022**|
-| [State Grand Jury Indicts Former Bank CEO Russell Laffitte. More Charges for Murdaugh and Fleming](https://www.fitsnews.com/2022/05/04/state-grand-jury-indicts-former-bank-ceo-russell-laffitte-more-charges-for-murdaugh-and-fleming/) |
-| [Ex-Palmetto State Bank CEO Russell Laffitte indicted in Alex Murdaugh case](https://www.postandcourier.com/murdaugh-updates/ex-palmetto-state-bank-ceo-russell-laffitte-indicted-in-alex-murdaugh-case/article_c8d7c3b4-ca38-11ec-b7d0-6ff5e14e71c7.html) |
+| **[State Grand Jury Indicts Former Bank CEO Russell Laffitte. More Charges for Murdaugh and Fleming](https://www.fitsnews.com/2022/05/04/state-grand-jury-indicts-former-bank-ceo-russell-laffitte-more-charges-for-murdaugh-and-fleming/)** |
+| **[Ex-Palmetto State Bank CEO Russell Laffitte indicted in Alex Murdaugh case](https://www.postandcourier.com/murdaugh-updates/ex-palmetto-state-bank-ceo-russell-laffitte-indicted-in-alex-murdaugh-case/article_c8d7c3b4-ca38-11ec-b7d0-6ff5e14e71c7.html)** |
 | **May 5, 2022**|
-| [A Showdown Awaits Alex Murdaugh And His Attorneys In The Boat Crash Case …](https://www.fitsnews.com/2022/05/05/a-showdown-awaits-alex-murdaugh-and-his-attorneys-in-the-boat-crash-case/) |
-| [Hakeem Pinckney Case: Attorney Finds ‘Very Disturbing’ Paper Trail Of ‘Blood Money’](https://www.fitsnews.com/2022/05/05/hakeem-pinckney-case-attorney-finds-very-disturbing-paper-trail-of-blood-money/) |
+| **[A Showdown Awaits Alex Murdaugh And His Attorneys In The Boat Crash Case …](https://www.fitsnews.com/2022/05/05/a-showdown-awaits-alex-murdaugh-and-his-attorneys-in-the-boat-crash-case/)** |
+| **[Hakeem Pinckney Case: Attorney Finds ‘Very Disturbing’ Paper Trail Of ‘Blood Money’](https://www.fitsnews.com/2022/05/05/hakeem-pinckney-case-attorney-finds-very-disturbing-paper-trail-of-blood-money/)**|
 |  **May 6, 2022**|
-| [Former Bank CEO Russell Laffitte Has Checked Himself Into Jail](https://www.fitsnews.com/2022/05/06/former-bank-ceo-russell-laffitte-has-checked-himself-into-jail/) |
-|  [Judge Sets Bond At $1 Million For Alleged Murdaugh Co-Conspirator Russell Laffitte](https://www.fitsnews.com/2022/05/06/judge-sets-bond-at-1-million-for-alleged-murdaugh-co-conspirator-russell-fleming/) |
-| [‘Murdaugh Murders’ Civil Case: Battle Over Alex Murdaugh’s Assets Rages On](https://www.fitsnews.com/2022/05/06/murdaugh-murders-civil-case-battle-over-alex-murdaughs-assets-rages-on/) |
-| 0[Former CEO of Palmetto State Bank posts $1M bail in Murdaugh case](https://www.postandcourier.com/murdaugh-updates/former-ceo-of-palmetto-state-bank-posts-1m-bail-in-murdaugh-case/article_4d1a667a-cd4c-11ec-b403-27ee2f29aa8a.html) |
+|**[Former Bank CEO Russell Laffitte Has Checked Himself Into Jail](https://www.fitsnews.com/2022/05/06/former-bank-ceo-russell-laffitte-has-checked-himself-into-jail/)** |
+|  **[Judge Sets Bond At $1 Million For Alleged Murdaugh Co-Conspirator Russell Laffitte](https://www.fitsnews.com/2022/05/06/judge-sets-bond-at-1-million-for-alleged-murdaugh-co-conspirator-russell-fleming/)** |
+| **[‘Murdaugh Murders’ Civil Case: Battle Over Alex Murdaugh’s Assets Rages On](https://www.fitsnews.com/2022/05/06/murdaugh-murders-civil-case-battle-over-alex-murdaughs-assets-rages-on/)** |
+| **[Former CEO of Palmetto State Bank posts $1M bail in Murdaugh case](https://www.postandcourier.com/murdaugh-updates/former-ceo-of-palmetto-state-bank-posts-1m-bail-in-murdaugh-case/article_4d1a667a-cd4c-11ec-b403-27ee2f29aa8a.html)** |
 |  **May 8, 2022**|
-| [South Carolina Judicial Transparency: Props To Judge Daniel Hall](https://www.fitsnews.com/2022/05/08/south-carolina-judicial-transparency-props-to-judge-daniel-hall/) |
+| **[South Carolina Judicial Transparency: Props To Judge Daniel Hall](https://www.fitsnews.com/2022/05/08/south-carolina-judicial-transparency-props-to-judge-daniel-hall/)** |
 | **May 10, 2022**|
-| [In Studio: Murdaugh Documentarian Eric Alan](https://www.fitsnews.com/2022/05/10/in-studio-murdaugh-documentarian-eric-alan/) |
+| **[In Studio: Murdaugh Documentarian Eric Alan](https://www.fitsnews.com/2022/05/10/in-studio-murdaugh-documentarian-eric-alan/)** |
 | **May 12, 2022**|
-| [Judge Rejects Alex Murdaugh’s Attempt To Regain Control Of His Finances](https://www.fitsnews.com/2022/05/12/judge-rejects-alex-murdaughs-attempt-to-regain-control-of-his-finances/) |
-| [Murdaugh Private Plane Mystery: Who Was The Third Attorney With Alex And Cory?](https://www.fitsnews.com/2022/05/12/murdaugh-private-plane-mystery-who-was-the-third-attorney-with-alex-and-cory/) |
+| **[Judge Rejects Alex Murdaugh’s Attempt To Regain Control Of His Finances](https://www.fitsnews.com/2022/05/12/judge-rejects-alex-murdaughs-attempt-to-regain-control-of-his-finances/)** |
+| **[Murdaugh Private Plane Mystery: Who Was The Third Attorney With Alex And Cory?](https://www.fitsnews.com/2022/05/12/murdaugh-private-plane-mystery-who-was-the-third-attorney-with-alex-and-cory/)** |
 | **May 13, 2022**|
-| [Murdaugh Indictments: What The Heck Is Happening With Cory Fleming?](https://www.fitsnews.com/2022/05/13/murdaugh-indictments-what-the-heck-is-happening-with-cory-fleming/) |
+| **[Murdaugh Indictments: What The Heck Is Happening With Cory Fleming?](https://www.fitsnews.com/2022/05/13/murdaugh-indictments-what-the-heck-is-happening-with-cory-fleming/)** |
 | **May 17, 2022**|
-| [Russell Laffitte Asks For Bond Reduction (And Throws Cory Fleming Right Under The Bus)](https://www.fitsnews.com/2022/05/17/russell-laffitte-asks-for-bond-reduction-and-throws-cory-fleming-right-under-the-bus/) |
+| **[Russell Laffitte Asks For Bond Reduction (And Throws Cory Fleming Right Under The Bus)](https://www.fitsnews.com/2022/05/17/russell-laffitte-asks-for-bond-reduction-and-throws-cory-fleming-right-under-the-bus/)** |
 | **May 18, 2022**|
-| [Crime Of Opportunity?: New Details Revealed In Gloria Satterfield’s Death](https://www.fitsnews.com/2022/05/18/crime-of-opportunity-new-details-revealed-in-gloria-satterfields-death/) |
+| **[Crime Of Opportunity?: New Details Revealed In Gloria Satterfield’s Death](https://www.fitsnews.com/2022/05/18/crime-of-opportunity-new-details-revealed-in-gloria-satterfields-death/)** |
 | **May 23, 2022**|
-| [Parker’s Attorney DMs Judge’s Clerk Over Instagram About Mallory Beach Case](https://www.fitsnews.com/2022/05/23/parkers-attorney-dms-judges-clerk-over-instagram-about-mallory-beach-case/) |
+| **[Parker’s Attorney DMs Judge’s Clerk Over Instagram About Mallory Beach Case](https://www.fitsnews.com/2022/05/23/parkers-attorney-dms-judges-clerk-over-instagram-about-mallory-beach-case/)** |
 | **May 27, 2022**|
-| [Palmetto State Bank Routinely Allowed Murdaugh To Overdraw Account — Sometimes By Six Figures](https://www.fitsnews.com/2022/05/27/palmetto-state-bank-routinely-allowed-murdaugh-to-overdraw-account-sometimes-by-six-figures/) |
+| **[Palmetto State Bank Routinely Allowed Murdaugh To Overdraw Account — Sometimes By Six Figures](https://www.fitsnews.com/2022/05/27/palmetto-state-bank-routinely-allowed-murdaugh-to-overdraw-account-sometimes-by-six-figures/)** |
 | **June 1, 2022**|
 | **[Let’s Just Brush The Alleged Nepotism In Charleston County Probate Court Under The Rug …](https://www.fitsnews.com/2022/06/01/lets-just-brush-the-alleged-nepotism-in-charleston-county-probate-court-under-the-rug/)** | 
 | **[SLED to exhume remains of Murdaugh family housekeeper as it investigates her death](https://www.postandcourier.com/murdaugh-updates/sled-to-exhume-remains-of-murdaugh-family-housekeeper-as-it-investigates-her-death/article_151dfac2-e366-11ec-a778-f30940aed739.html)** |
