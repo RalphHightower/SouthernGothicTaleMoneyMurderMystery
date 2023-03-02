@@ -429,87 +429,99 @@
 |  **December 31, 2021**|
 | [PMPED Partners Splitting Amid Murdaugh Investigations, Sources And Documents Say](https://www.fitsnews.com/2021/12/31/pmped-is-ditching-murdaugh-from-law-firm-name-documents-show/) |
 | **January 5, 2022**|
-| [CityWatch: From the Murdaughs to Marky Mark, SC scandals go big](https://www.postandcourier.com/columbia/opinion/citywatch-from-the-murdaughs-to-marky-mark-sc-scandals-go-big/article_ff8d777a-6cad-11ec-822b-a70b29b1e94d.html) |
-| [Murdaugh’s Alleged Co-Conspirators Expected To Be Indicted Soon, Sources Say](https://www.fitsnews.com/2022/01/05/murdaughs-alleged-co-conspirators-expected-to-be-indicted-soon-sources-say/) |
-| [Physical Evidence Directly Ties Alex Murdaugh To Double Homicide, Sources Say](https://www.fitsnews.com/2022/01/05/physical-evidence-directly-ties-alex-murdaugh-to-the-double-homicide-sources-say/) |
+| **[CityWatch: From the Murdaughs to Marky Mark, SC scandals go big](https://www.postandcourier.com/columbia/opinion/citywatch-from-the-murdaughs-to-marky-mark-sc-scandals-go-big/article_ff8d777a-6cad-11ec-822b-a70b29b1e94d.html)** |
+| **[Murdaugh’s Alleged Co-Conspirators Expected To Be Indicted Soon, Sources Say](https://www.fitsnews.com/2022/01/05/murdaughs-alleged-co-conspirators-expected-to-be-indicted-soon-sources-say/)** |
+| **[Physical Evidence Directly Ties Alex Murdaugh To Double Homicide, Sources Say](https://www.fitsnews.com/2022/01/05/physical-evidence-directly-ties-alex-murdaugh-to-the-double-homicide-sources-say/)** |
 | **January 6, 2022**|
-| [Alex Murdaugh’s attorneys file another motion to spring him from jail](https://www.postandcourier.com/murdaugh-updates/alex-murdaughs-attorneys-file-another-motion-to-spring-him-from-jail/article_39d9c0f4-6f02-11ec-b2f2-0bca17b2215f.html) |
+| **[Alex Murdaugh’s attorneys file another motion to spring him from jail](https://www.postandcourier.com/murdaugh-updates/alex-murdaughs-attorneys-file-another-motion-to-spring-him-from-jail/article_39d9c0f4-6f02-11ec-b2f2-0bca17b2215f.html)** |
 |  **January 7, 2022**|
-| [Murdaugh, Fleming And Bank Stole From Quadriplegic Deaf Man In 2011 Scheme, Attorney Says](https://www.fitsnews.com/2022/01/07/murdaugh-fleming-and-bank-stole-from-quadriplegic-deaf-man-in-2011-scheme-attorney-says/) |
-| [Judge To Hear Alex Murdaugh’s Reasons For Wanting Lower Bond On Monday Afternoon](https://www.fitsnews.com/2022/01/07/judge-to-hear-alex-murdaughs-reasons-for-wanting-lower-bond-on-monday-afternoon/) |
+| **[Murdaugh, Fleming And Bank Stole From Quadriplegic Deaf Man In 2011 Scheme, Attorney Says](https://www.fitsnews.com/2022/01/07/murdaugh-fleming-and-bank-stole-from-quadriplegic-deaf-man-in-2011-scheme-attorney-says/)** |
+| **[Judge To Hear Alex Murdaugh’s Reasons For Wanting Lower Bond On Monday Afternoon](https://www.fitsnews.com/2022/01/07/judge-to-hear-alex-murdaughs-reasons-for-wanting-lower-bond-on-monday-afternoon/)** |
 | **January 8, 2022** |
-| [Palmetto State Bank CEO fired as former Murdaugh clients seek missing money](https://www.postandcourier.com/murdaugh-updates/palmetto-state-bank-ceo-fired-as-former-murdaugh-clients-seek-missing-money/article_a592e480-70a9-11ec-bec2-1fc5985adeae.html) |
+| **[Palmetto State Bank CEO fired as former Murdaugh clients seek missing money](https://www.postandcourier.com/murdaugh-updates/palmetto-state-bank-ceo-fired-as-former-murdaugh-clients-seek-missing-money/article_a592e480-70a9-11ec-bec2-1fc5985adeae.html)** |
 |  **January 10, 2022** |
-| [Video: Dick Harpootlian Gets Heated at Alex Murdaugh’s Bond Hearing](https://www.fitsnews.com/2022/01/10/dick-harpootlian-gets-heated-at-alex-murdaughs-bond-hearing/) |
-|  [Will Today Be The Day The Judicial System Gives In To Alex Murdaugh’s Demands?](https://www.fitsnews.com/2022/01/10/will-today-be-the-day-the-judicial-system-gives-in-to-alex-murdaughs-demands/) |
-| [Alex Murdaugh’s attorneys urge judge to lower bail in 4th attempt to get him out of jail](https://www.postandcourier.com/murdaugh-updates/alex-murdaughs-attorneys-urge-judge-to-lower-bail-in-4th-attempt-to-get-him-out/article_6c1abafc-7220-11ec-a2f1-0f9475baf297.html) |
-| [Ouster Of Acting US Attorney In South Carolina Linked To Mishandling Of ‘Murdaugh Murders’](https://www.fitsnews.com/2022/01/10/ouster-of-acting-us-attorney-in-south-carolina-linked-to-mishandling-of-murdaugh-murders/) |
-| [‘He Stole Every Dime I Had’: Judge To Issue Written Decision In Alex Murdaugh’s Action-Packed Bond Hearing](https://www.fitsnews.com/2022/01/10/he-stole-every-dime-judge-to-issue-written-decision-in-alex-murdaugh-bond-hearing/) |
+| **[Video: Dick Harpootlian Gets Heated at Alex Murdaugh’s Bond Hearing](https://www.fitsnews.com/2022/01/10/dick-harpootlian-gets-heated-at-alex-murdaughs-bond-hearing/)** |
+|  **[Will Today Be The Day The Judicial System Gives In To Alex Murdaugh’s Demands?](https://www.fitsnews.com/2022/01/10/will-today-be-the-day-the-judicial-system-gives-in-to-alex-murdaughs-demands/)** |
+| **[Alex Murdaugh’s attorneys urge judge to lower bail in 4th attempt to get him out of jail](https://www.postandcourier.com/murdaugh-updates/alex-murdaughs-attorneys-urge-judge-to-lower-bail-in-4th-attempt-to-get-him-out/article_6c1abafc-7220-11ec-a2f1-0f9475baf297.html)** |
+| **[Ouster Of Acting US Attorney In South Carolina Linked To Mishandling Of ‘Murdaugh Murders’](https://www.fitsnews.com/2022/01/10/ouster-of-acting-us-attorney-in-south-carolina-linked-to-mishandling-of-murdaugh-murders/)** |
+| **[‘He Stole Every Dime I Had’: Judge To Issue Written Decision In Alex Murdaugh’s Action-Packed Bond Hearing](https://www.fitsnews.com/2022/01/10/he-stole-every-dime-judge-to-issue-written-decision-in-alex-murdaugh-bond-hearing/)** |
 |  **January 11, 2022**|
-| [Video: Murdaugh’s Victim Describes How He Was Left Penniless](https://www.fitsnews.com/2022/01/11/video-murdaughs-victim-describes-how-he-was-left-penniless/) |
+| **[Video: Murdaugh’s Victim Describes How He Was Left Penniless](https://www.fitsnews.com/2022/01/11/video-murdaughs-victim-describes-how-he-was-left-penniless/)** |
 |  **January 13, 2022**|
-| [Murdaugh Murders Saga: ABC’s 20/20 To Feature FITSNews Director Mandy Matney, Families Of Victims](https://www.fitsnews.com/2022/01/13/murdaugh-murders-saga-abcs-20-20-to-feature-fitnews-director-mandy-matney-families-of-victims/) |
-| [SC Supreme Court Denies Alex Murdaugh’s Petition To Be Released From Jail](https://www.fitsnews.com/2022/01/13/sc-supreme-court-denies-alex-murdaughs-petition-to-be-released-from-jail/)<br>Supreme Court Justices rejected the writ *“because Petitioner has been indicted on the charges for which the Honorable Clifton Newman denied bond after his arrest, and the Honorable Alison Lee has set bond for Petitioner on those charges, the request for a writ of habeas corpus is moot.”* |
+| **[Murdaugh Murders Saga: ABC’s 20/20 To Feature FITSNews Director Mandy Matney, Families Of Victims](https://www.fitsnews.com/2022/01/13/murdaugh-murders-saga-abcs-20-20-to-feature-fitnews-director-mandy-matney-families-of-victims/)** |
+| **[SC Supreme Court Denies Alex Murdaugh’s Petition To Be Released From Jail](https://www.fitsnews.com/2022/01/13/sc-supreme-court-denies-alex-murdaughs-petition-to-be-released-from-jail/)**|
+|Supreme Court Justices rejected the writ *“because Petitioner has been indicted on the charges for which the Honorable Clifton Newman denied bond after his arrest, and the Honorable Alison Lee has set bond for Petitioner on those charges, the request for a writ of habeas corpus is moot.”* |
 | **January 16, 2022**|
-| [South Carolina Supreme Court Investigating Alex Murdaugh’s Alleged ‘Smuggle Buddy’](https://www.fitsnews.com/2022/01/16/south-carolina-supreme-court-investigating-alex-murdaughs-alleged-smuggle-buddy/) |
+| **[South Carolina Supreme Court Investigating Alex Murdaugh’s Alleged ‘Smuggle Buddy’](https://www.fitsnews.com/2022/01/16/south-carolina-supreme-court-investigating-alex-murdaughs-alleged-smuggle-buddy/)** |
 |  **January 17, 2022**|
-| [Alex Murdaugh’s Brother Accuses Beach Attorney Of Holding Him ‘Hostage’ In Court Filings](https://www.fitsnews.com/2022/01/17/alex-murdaughs-brother-accuses-mallory-beachs-mom-of-holding-him-hostage/) |
+| **[Alex Murdaugh’s Brother Accuses Beach Attorney Of Holding Him ‘Hostage’ In Court Filings](https://www.fitsnews.com/2022/01/17/alex-murdaughs-brother-accuses-mallory-beachs-mom-of-holding-him-hostage/)** |
 |  **January 18, 2022**|
-| [Judge Denies Alex Murdaugh’s Motion For Bond Reduction](https://www.fitsnews.com/2022/01/18/judge-denies-alex-murdaughs-motion-for-bond-reduction/) |
-| [Judge denies Alex Murdaugh’s request to lower $7M bail](https://www.postandcourier.com/murdaugh-updates/judge-denies-alex-murdaugh-s-request-to-lower-7m-bail/article_796be860-788e-11ec-ac22-d3d3ccdc5479.html) |
+| **[Judge Denies Alex Murdaugh’s Motion For Bond Reduction](https://www.fitsnews.com/2022/01/18/judge-denies-alex-murdaughs-motion-for-bond-reduction/)** |
+| **[Judge denies Alex Murdaugh’s request to lower $7M bail](https://www.postandcourier.com/murdaugh-updates/judge-denies-alex-murdaugh-s-request-to-lower-7m-bail/article_796be860-788e-11ec-ac22-d3d3ccdc5479.html)** |
 |  **January 19, 2022**|
-| [‘It Tears Me Apart’: Hakeem Pinckney’s Mother Devastated By Alex Murdaugh’s Betrayal](https://www.fitsnews.com/2022/01/19/it-tears-me-apart-hakeem-pinckneys-mother-devastated-by-alex-murdaughs-betrayal/) |
-| [Can’t Afford Underwear? $4 Mayonnaise? Alex Murdaugh’s Commissary Receipts Tell Different Story](https://www.fitsnews.com/2022/01/19/cant-afford-underwear-4-mayonnaise-alex-murdaughs-commissary-receipts-tell-different-story/) |
-| [How Broke is Alex Murdaugh? Receiver Testimony Gives Clues](https://www.fitsnews.com/2022/01/19/how-broke-is-alex-murdaugh-receiver-testimony-gives-clues/) |
+| **[‘It Tears Me Apart’: Hakeem Pinckney’s Mother Devastated By Alex Murdaugh’s Betrayal](https://www.fitsnews.com/2022/01/19/it-tears-me-apart-hakeem-pinckneys-mother-devastated-by-alex-murdaughs-betrayal/)** |
+| **[Can’t Afford Underwear? $4 Mayonnaise? Alex Murdaugh’s Commissary Receipts Tell Different Story](https://www.fitsnews.com/2022/01/19/cant-afford-underwear-4-mayonnaise-alex-murdaughs-commissary-receipts-tell-different-story/)** |
+| **[How Broke is Alex Murdaugh? Receiver Testimony Gives Clues](https://www.fitsnews.com/2022/01/19/how-broke-is-alex-murdaugh-receiver-testimony-gives-clues/)** |
 |Attorney John Lay, one of the attorneys assigned to the receivership of Murdaugh’s assets  correctly asserted in his recent testimony that *“Richard Alexander ‘Alex’ Murdaugh’s assets are complicated, and without an orderly process such as the injunction and receivership, such assets would be sold and transferred in a manner that would not preserve their value. …Untangling this network is a substantial but necessary task in order to secure the assets in an orderly manner and to prevent improper preferential treatment of various potential creditors.”* |
 | **January 21, 2022**|
-| [Alex Murdaugh hit with more indictments, now charged with stealing nearly $8.5M](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-hit-with-more-indictments-now-charged-with-stealing-nearly-8-5m/article_8ed7b3f0-7ac3-11ec-9fbd-f391edc1a9c1.html) |
-| [Alex Murdaugh Faces Slew Of New Charges From Hakeem Pinckney Case And Others](https://www.fitsnews.com/2022/01/21/alex-murdaugh-faces-slew-of-new-charges-from-hakeem-pinckney-case-and-others/) |
+| **[Alex Murdaugh hit with more indictments, now charged with stealing nearly $8.5M](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-hit-with-more-indictments-now-charged-with-stealing-nearly-8-5m/article_8ed7b3f0-7ac3-11ec-9fbd-f391edc1a9c1.html)** |
+| **[Alex Murdaugh Faces Slew Of New Charges From Hakeem Pinckney Case And Others](https://www.fitsnews.com/2022/01/21/alex-murdaugh-faces-slew-of-new-charges-from-hakeem-pinckney-case-and-others/)** |
 |  **January 28, 2022**|
-| [Murdaugh Mess: Palmetto State Bank Hires PR Firm While Victims Haven’t Been Compensated, Attorney Says](https://www.fitsnews.com/2022/01/28/murdaugh-mess-palmetto-state-bank-hires-pr-firm-while-victims-havent-been-compensated-attorney-says/) |
+| **[Murdaugh Mess: Palmetto State Bank Hires PR Firm While Victims Haven’t Been Compensated, Attorney Says](https://www.fitsnews.com/2022/01/28/murdaugh-mess-palmetto-state-bank-hires-pr-firm-while-victims-havent-been-compensated-attorney-says/)** |
 |**2022-01-28**|
-|[Statement from Chief Justice Donald W. Beatty on Assignment of Judges to Murdaugh Cases](https://www.sccourts.org/whatsnew/displayWhatsNew.cfm?indexId=2668)|
+|**[Statement from Chief Justice Donald W. Beatty on Assignment of Judges to Murdaugh Cases](https://www.sccourts.org/whatsnew/displayWhatsNew.cfm?indexId=2668)**|
 |*Contrary to innuendos and misinformation contained in recent news coverage, Judge Clifton Newman was never removed from, or “reassigned” to, the Murdaugh cases. Judge Newman was initially assigned primarily to handle search warrants requested by SLED, and he still has that responsibility*.|
 | **February 2, 2022**|
-| [In 1993, Alex Started A Brawl At A Strip Club … Then Deputies Drove Him Home, Documents Show](https://www.fitsnews.com/2022/02/02/in-1993-alex-started-a-brawl-at-a-strip-club-then-deputies-drove-him-home-documents-show/) |
+| **[In 1993, Alex Started A Brawl At A Strip Club … Then Deputies Drove Him Home, Documents Show](https://www.fitsnews.com/2022/02/02/in-1993-alex-started-a-brawl-at-a-strip-club-then-deputies-drove-him-home-documents-show/)** |
 |  **February 7, 2022**|
-| [South Carolina’s Statewide Grand Jury: In The Spotlight](https://www.fitsnews.com/2022/02/07/south-carolinas-statewide-grand-jury-in-the-spotlight/) |
+| **[South Carolina’s Statewide Grand Jury: In The Spotlight](https://www.fitsnews.com/2022/02/07/south-carolinas-statewide-grand-jury-in-the-spotlight/)** |
 | **February 9, 2022**|
-| [Murdaugh Murders Saga: Back To The Boat Crash](https://www.fitsnews.com/2022/02/09/murdaugh-murders-saga-back-to-the-boat-crash/) |
+| **[Murdaugh Murders Saga: Back To The Boat Crash](https://www.fitsnews.com/2022/02/09/murdaugh-murders-saga-back-to-the-boat-crash/)** |
 | **February 9, 2022**|
-| [Timeline: See Alex Murdaugh’s Ties To Alleged Drug Smuggler Who Owned Moselle](https://www.fitsnews.com/2022/02/09/timeline-alex-murdaughs-connections-to-alleged-drug-smuggler-who-owned-moselle/) |
+| **[Timeline: See Alex Murdaugh’s Ties To Alleged Drug Smuggler Who Owned Moselle](https://www.fitsnews.com/2022/02/09/timeline-alex-murdaughs-connections-to-alleged-drug-smuggler-who-owned-moselle/)** |
 | **February 14, 2022**|
-| [Moselle Property Where Maggie and Paul Murdaugh Were Murdered Listed For $3.9 Million](https://www.fitsnews.com/2022/02/14/moselle-property-where-maggie-and-paul-murdaugh-were-murdered-might-be-sold-soon-sources-say/) |
+| **[Moselle Property Where Maggie and Paul Murdaugh Were Murdered Listed For $3.9 Million](https://www.fitsnews.com/2022/02/14/moselle-property-where-maggie-and-paul-murdaugh-were-murdered-might-be-sold-soon-sources-say/)** |
 | **February 14, 2022** |
-| **Property Listing:** [Cross Swamp Farm](https://crosbylandco.com/property/cross-swamp-farm-colleton-south-carolina/24755/) <br>Price: \$3,900,000 <br> Acres: 1,772.2±<br> Price Per Acre: $2,201 <br> Type: Farms, Hunting Land, Recreational Land, Residential Property, Riverfront <br> City, State: Walterboro, South Carolina <br> County: Colleton <br> ZIP Code: 29929 <br> Lat/Long: 32.95647, -81.020079 <br> Dwelling Sq Ft: 5,275 <br> Bedrooms: 4 <br> Bathrooms 3.5 |
-| [Attorneys Drop Efforts To Remove Alex Murdaugh From Satterfield Suit And Silence Eric Bland](https://www.fitsnews.com/2022/02/14/attorneys-drop-efforts-to-remove-alex-murdaugh-from-satterfield-suit-sanction-eric-bland/) |
+| **Property Listing: [Cross Swamp Farm](https://crosbylandco.com/property/cross-swamp-farm-colleton-south-carolina/24755/)** |
+|Price: \$3,900,000|
+|Acres: 1,772.2±|
+|Price Per Acre: $2,201 |
+|Type: Farms, Hunting Land, Recreational Land, Residential Property, Riverfront |
+|City, State: Walterboro, South Carolina |
+|County: Colleton |
+|ZIP Code: 29929 |
+|Lat/Long: 32.95647, -81.020079 |
+|Dwelling Sq Ft: 5,275 |
+|Bedrooms: 4|
+|Bathrooms 3.5 |
+| **[Attorneys Drop Efforts To Remove Alex Murdaugh From Satterfield Suit And Silence Eric Bland](https://www.fitsnews.com/2022/02/14/attorneys-drop-efforts-to-remove-alex-murdaugh-from-satterfield-suit-sanction-eric-bland/)** |
 | **February 15, 2022**|
-| [Two More Survivors of 2019 Boat Crash File Lawsuits Against Murdaughs, Including Maggie And Paul](https://www.fitsnews.com/2022/02/15/two-passengers-in-2019-boat-crash-file-lawsuits-against-murdaughs-including-maggie-and-paul/) |
-| [Disgraced SC attorney Alex Murdaugh’s estate listed for sale, but legal hurdles remain](https://www.postandcourier.com/murdaugh-updates/disgraced-sc-attorney-alex-murdaughs-estate-listed-for-sale-but-legal-hurdles-remain/article_0afdcf06-8eaa-11ec-b2fc-5b63e7adacca.html) |
+| **[Two More Survivors of 2019 Boat Crash File Lawsuits Against Murdaughs, Including Maggie And Paul](https://www.fitsnews.com/2022/02/15/two-passengers-in-2019-boat-crash-file-lawsuits-against-murdaughs-including-maggie-and-paul/)** |
+| **[Disgraced SC attorney Alex Murdaugh’s estate listed for sale, but legal hurdles remain](https://www.postandcourier.com/murdaugh-updates/disgraced-sc-attorney-alex-murdaughs-estate-listed-for-sale-but-legal-hurdles-remain/article_0afdcf06-8eaa-11ec-b2fc-5b63e7adacca.html)** |
 |  **February 17, 2022**|
-| [Murdaugh Murders Saga: Independent Review Of Stephen Smith’s Autopsy Needed](https://www.fitsnews.com/2022/02/17/murdaugh-murders-saga-forensic-review-of-stephen-smiths-autopsy-required/) |
+| **(Murdaugh Murders Saga: Independent Review Of Stephen Smith’s Autopsy Needed](https://www.fitsnews.com/2022/02/17/murdaugh-murders-saga-forensic-review-of-stephen-smiths-autopsy-required/)** |
 | **February 18, 2022**|
-| [Interview: Prominent Attorney Breaks Down Boating Under The Influence, Driving Under The Influence Laws](https://www.fitsnews.com/2022/02/18/interview-expert-attorney-breaks-down-boating-under-the-influence-driving-under-the-influence-laws/) |
+| **[Interview: Prominent Attorney Breaks Down Boating Under The Influence, Driving Under The Influence Laws](https://www.fitsnews.com/2022/02/18/interview-expert-attorney-breaks-down-boating-under-the-influence-driving-under-the-influence-laws/)** |
 | **February 23, 2022**|
-| [Estates Of Maggie And Paul Murdaugh Added To Mallory Beach Lawsuit](https://www.fitsnews.com/2022/02/23/estates-of-maggie-and-paul-murdaugh-added-to-mallory-beach-lawsuit/) |
-| [‘I Promise You’: What We Learned From Alex Murdaugh’s Jail House Calls With Buster](https://www.fitsnews.com/2022/02/23/i-promise-you-what-we-learned-from-alex-murdaughs-jailhouse-calls-with-buster/) |
+| **[Estates Of Maggie And Paul Murdaugh Added To Mallory Beach Lawsuit](https://www.fitsnews.com/2022/02/23/estates-of-maggie-and-paul-murdaugh-added-to-mallory-beach-lawsuit/)*? |
+| **[‘I Promise You’: What We Learned From Alex Murdaugh’s Jail House Calls With Buster](https://www.fitsnews.com/2022/02/23/i-promise-you-what-we-learned-from-alex-murdaughs-jailhouse-calls-with-buster/)** |
 | **February 24, 2022**|
-| [‘Everybody’s Implicated’: What We Learned From Alex Murdaugh’s Phone Calls To His Brothers](https://www.fitsnews.com/2022/02/24/everybodys-implicated-what-we-learned-from-alex-murdaughs-phone-calls-to-his-brothers/) |
+| **[‘Everybody’s Implicated’: What We Learned From Alex Murdaugh’s Phone Calls To His Brothers](https://www.fitsnews.com/2022/02/24/everybodys-implicated-what-we-learned-from-alex-murdaughs-phone-calls-to-his-brothers/)** |
 |  **February 25, 2022**|
-| [Murdaugh Murders Saga: Federal Investigation Ramps Up](https://www.fitsnews.com/2022/02/25/murdaugh-murders-saga-federal-investigation-ramps-up/) |
-|  [Murdaugh Murders Saga: Investigators, Grand Jurors Focus On Law Firm Finances](https://www.fitsnews.com/2022/02/25/murdaugh-murders-saga-investigators-grand-jurors-focus-on-law-firm-finances/) |
+| **[Murdaugh Murders Saga: Federal Investigation Ramps Up](https://www.fitsnews.com/2022/02/25/murdaugh-murders-saga-federal-investigation-ramps-up/)** |
+|  **[Murdaugh Murders Saga: Investigators, Grand Jurors Focus On Law Firm Finances](https://www.fitsnews.com/2022/02/25/murdaugh-murders-saga-investigators-grand-jurors-focus-on-law-firm-finances/)** |
 |  **February 28, 2022**|
-| [Parker’s Tries To Block Access to Private Investigator, ‘Knife Fighter’ Files In Beach Conspiracy Case](https://www.fitsnews.com/2022/02/28/parkers-tries-to-block-access-to-private-investigator-knife-fighter-files-in-beach-conspiracy-case/) |
-| [Alex Murdaugh’s lawyers seek to block release of jail tapes by Richland County](https://www.postandcourier.com/murdaugh-updates/alex-murdaughs-lawyers-seek-to-block-release-of-jail-tapes-by-richland-county/article_df1d52d0-98a9-11ec-b626-0772007c81a6.html) |
-| [Attorneys Sue To Stop Release Of Alex Murdaugh’s Jail House Calls](https://www.fitsnews.com/2022/02/28/attorneys-sue-to-stop-release-of-alex-murdaughs-jailhouse-calls/) |
+| **[Parker’s Tries To Block Access to Private Investigator, ‘Knife Fighter’ Files In Beach Conspiracy Case](https://www.fitsnews.com/2022/02/28/parkers-tries-to-block-access-to-private-investigator-knife-fighter-files-in-beach-conspiracy-case/)** |
+| **[Alex Murdaugh’s lawyers seek to block release of jail tapes by Richland County](https://www.postandcourier.com/murdaugh-updates/alex-murdaughs-lawyers-seek-to-block-release-of-jail-tapes-by-richland-county/article_df1d52d0-98a9-11ec-b626-0772007c81a6.html)** |
+| **[Attorneys Sue To Stop Release Of Alex Murdaugh’s Jail House Calls](https://www.fitsnews.com/2022/02/28/attorneys-sue-to-stop-release-of-alex-murdaughs-jailhouse-calls/)** |
 |  **March 1, 2022**|
-| [There Must Be Something Really Bad In The Next Round Of Alex Murdaugh’s Jail House Calls](https://www.fitsnews.com/2022/03/01/there-must-be-something-really-bad-in-the-next-round-of-alex-murdaughs-jail-house-calls/) |
-| [Prosecutor says SC judge’s actions in Alex Murdaugh case threaten to ‘erode public trust’](https://www.postandcourier.com/murdaugh-updates/prosecutor-says-sc-judges-actions-in-alex-murdaugh-case-threaten-to-erode-public-trust/article_5bcc8af2-9996-11ec-a62c-fbb9b082526f.html) |
-| [South Carolina Judge Agreed To Let Alex Murdaugh Hide Settlement, Deposition Of Alleged Co-Conspirator Shows](https://www.fitsnews.com/2022/03/01/south-carolina-judge-agreed-to-let-alex-murdaugh-hide-settlement-deposition-of-alleged-co-conspirator-shows/) |
+| **[There Must Be Something Really Bad In The Next Round Of Alex Murdaugh’s Jail House Calls](https://www.fitsnews.com/2022/03/01/there-must-be-something-really-bad-in-the-next-round-of-alex-murdaughs-jail-house-calls/)** |
+| **[Prosecutor says SC judge’s actions in Alex Murdaugh case threaten to ‘erode public trust’](https://www.postandcourier.com/murdaugh-updates/prosecutor-says-sc-judges-actions-in-alex-murdaugh-case-threaten-to-erode-public-trust/article_5bcc8af2-9996-11ec-a62c-fbb9b082526f.html)** |
+| **[South Carolina Judge Agreed To Let Alex Murdaugh Hide Settlement, Deposition Of Alleged Co-Conspirator Shows](https://www.fitsnews.com/2022/03/01/south-carolina-judge-agreed-to-let-alex-murdaugh-hide-settlement-deposition-of-alleged-co-conspirator-shows/)** |
 | **March 4, 2022**|
-| [Murdaugh Murders Saga: Misconduct Allegations Against SC Judge ‘Should Not Be A Surprise,’ Solicitor’s Letter Says](https://www.fitsnews.com/2022/03/04/murdaugh-murders-saga-misconduct-allegations-against-sc-judge-should-not-be-a-surprise-solicitor-says/) |
+| **[Murdaugh Murders Saga: Misconduct Allegations Against SC Judge ‘Should Not Be A Surprise,’ Solicitor’s Letter Says](https://www.fitsnews.com/2022/03/04/murdaugh-murders-saga-misconduct-allegations-against-sc-judge-should-not-be-a-surprise-solicitor-says/)** |
 | **March 5, 2022**|
-| [Battle Over ‘Murdaugh Murders’ Jail Calls, Judicial Corruption And School District Accountability – Week In Review 3/5/2022](https://www.fitsnews.com/2022/03/05/battle-over-murdaugh-murders-jail-calls-judicial-corruption-and-school-district-accountability-week-in-review-3-5-2022/)** ! |
+| **[Battle Over ‘Murdaugh Murders’ Jail Calls, Judicial Corruption And School District Accountability – Week In Review 3/5/2022](https://www.fitsnews.com/2022/03/05/battle-over-murdaugh-murders-jail-calls-judicial-corruption-and-school-district-accountability-week-in-review-3-5-2022/)** |
 |  **March 7, 2022**|
 | **[One Week. Four Judges. Another Conflict? Murdaugh Circus Alive And Well In Jail House Calls Case](https://www.fitsnews.com/2022/03/07/one-week-four-judges-another-conflict-murdaugh-circus-alive-and-well-in-jail-house-calls-case/)**|
 | One Week. Four Judges. Another Conflict? Murdaugh Circus Alive And Well  
