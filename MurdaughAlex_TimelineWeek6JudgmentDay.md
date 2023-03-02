@@ -95,3 +95,7 @@ Waters urged jurors not to believe what they heard when Murdaugh testified in hi
 |As he spoke, Waters pulled up one of the graphic sealed exhibits depicting the sheer savagery of the slayings. |
 | *“This is what he did,”* Waters said, pointing to Murdaugh. J“He fooled Maggie and Paul – and they paid for it with their lives,”* Waters concluded. *“Don’t let him fool you.”* |
 |Murdaugh attorney Jim Griffin is scheduled to deliver the closing argument for the defense tomorrow morning at 9:30 a.m. EST. After he has finished, assistant attorney general John Meadors is expected to provide a rebuttal from the state. Once Meadors has concluded his remarks, judge Clifton Newman will instruct the jury as to its duties under the law. At that point, Murdaugh’s fate will rest in the hands of the twelve Colleton County chosen back on January 25, 2023.|
+| **March 2, 2023** |
+| **[Live: Alex Murdaugh’s defense attorneys deliver closing argument in double murder trial](https://www.postandcourier.com/murdaugh-updates/live-alex-murdaughs-defense-attorneys-deliver-closing-argument-in-double-murder-trial/article_b6d9afac-b69a-11ed-93f2-737ea79f687a.html)** |
+| **[LIVE FEED – ‘Murdaugh Murders’ Trial: Day Twenty-Eight](https://www.fitsnews.com/2023/03/02/live-feed-murdaugh-murders-trial-day-twenty-eight/)** |
+|News and notes from South Carolina’s ‘Trial of the Century.’|
