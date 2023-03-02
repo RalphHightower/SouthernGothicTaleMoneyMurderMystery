@@ -509,9 +509,10 @@
 | **March 4, 2022**|
 | [Murdaugh Murders Saga: Misconduct Allegations Against SC Judge ‘Should Not Be A Surprise,’ Solicitor’s Letter Says](https://www.fitsnews.com/2022/03/04/murdaugh-murders-saga-misconduct-allegations-against-sc-judge-should-not-be-a-surprise-solicitor-says/) |
 | **March 5, 2022**|
-| [Battle Over ‘Murdaugh Murders’ Jail Calls, Judicial Corruption And School District Accountability – Week In Review 3/5/2022](https://www.fitsnews.com/2022/03/05/battle-over-murdaugh-murders-jail-calls-judicial-corruption-and-school-district-accountability-week-in-review-3-5-2022/) |
+| [Battle Over ‘Murdaugh Murders’ Jail Calls, Judicial Corruption And School District Accountability – Week In Review 3/5/2022](https://www.fitsnews.com/2022/03/05/battle-over-murdaugh-murders-jail-calls-judicial-corruption-and-school-district-accountability-week-in-review-3-5-2022/)** ! |
 |  **March 7, 2022**|
-| [One Week. Four Judges. Another Conflict? Murdaugh Circus Alive And Well In Jail House Calls Case](https://www.fitsnews.com/2022/03/07/one-week-four-judges-another-conflict-murdaugh-circus-alive-and-well-in-jail-house-calls-case/) e Week. Four Judges. Another Conflict? Murdaugh Circus Alive And Well  
+| **[One Week. Four Judges. Another Conflict? Murdaugh Circus Alive And Well In Jail House Calls Case](https://www.fitsnews.com/2022/03/07/one-week-four-judges-another-conflict-murdaugh-circus-alive-and-well-in-jail-house-calls-case/)**|
+| One Week. Four Judges. Another Conflict? Murdaugh Circus Alive And Well  
 |U.S. District Michelle Childs now the fourth judge assigned to Murdaugh jail house case|
 |If there’s one paradox we can rely on with the Murdaugh Murders Saga, it’s that nothing is ever as it seems — while everything is usually exactly how it looks. Newspaperman John Monk at The State reported Monday evening that there’s been yet another judicial shuffle with the (frivolous, according to many) federal lawsuit filed by Alex Murdaugh’s ”bulldog attorneys” last week to stop the public release of their client’s phone calls from jail. The ‘dogs filed the suit after FITSNews and the Murdaugh Murders Podcast published transcripts and audio excerpts from eleven of Murdaugh’s calls, which we received through a Freedom of Information Act Request from Richland County.|
 |The calls gave the public a closer look at Murdaugh’s machinations from behind bars and, as it turns out, directly contradicted many of the claims that have been made by his attorneys, Dick Harpootlian and Jim Griffin, in an effort to gain his release from jail. This could explain why they want to stop any more tidbits from coming out, *”There Must Be Something Really Bad In The Next Round Of Alex Murdaugh’s Jail House Calls”*).|
@@ -524,40 +525,40 @@
 |Then there is the tight South Carolina Democratic political circle of which NPStrategy, Murdaugh, Childs and Harpootlian are members.|
 |Should involvement in a political party matter in this situation? Yes. South Carolina is a very Republican state, which — some might argue — places Democrats into much closer quarters, where they would ostensibly form tighter relationships. And finally, according to sources, Childs’ campaign for Supreme Court nomination was funded, at least in large part, by the South Carolina Association of Justice — whose president in 2016 was … Alex Murdaugh.|
 |  **March 8, 2022**|
-| [Judge In Murdaugh Jail House Calls Case Acknowledges Potential Conflicts, Invites Requests For Recusal](https://www.fitsnews.com/2022/03/08/judge-in-murdaugh-jail-house-calls-case-acknowledges-potential-conflicts-invites-requests-for-recusal/) |
+| **[Judge In Murdaugh Jail House Calls Case Acknowledges Potential Conflicts, Invites Requests For Recusal](https://www.fitsnews.com/2022/03/08/judge-in-murdaugh-jail-house-calls-case-acknowledges-potential-conflicts-invites-requests-for-recusal/)** |
 | **March 9, 2022**|
-| [Motion Filed To Hold Alex Murdaugh In Contempt Of Court For Violating Injunction](https://www.fitsnews.com/2022/03/09/motion-filed-to-hold-alex-murdaugh-in-contempt-of-court-for-violating-injunction/) |
+| **[Motion Filed To Hold Alex Murdaugh In Contempt Of Court For Violating Injunction](https://www.fitsnews.com/2022/03/09/motion-filed-to-hold-alex-murdaugh-in-contempt-of-court-for-violating-injunction/)** |
 |  **March 10, 2022**|
-| [‘I Had No Clue’: Watch Chad Westendorf’s Full Deposition In The Gloria Satterfield Case](https://www.fitsnews.com/2022/03/10/i-had-no-clue-watch-chad-westendorfs-full-deposition-in-the-gloria-satterfield-case/) |
+| **[‘I Had No Clue’: Watch Chad Westendorf’s Full Deposition In The Gloria Satterfield Case](https://www.fitsnews.com/2022/03/10/i-had-no-clue-watch-chad-westendorfs-full-deposition-in-the-gloria-satterfield-case/)** |
 |  **March 11, 2022**|
-| [Alex Murdaugh Asks Judge To Recuse Herself In Jail House Calls Case](https://www.fitsnews.com/2022/03/11/alex-murdaugh-asks-judge-to-recuse-herself-in-jail-house-calls-case/) |
+| **[Alex Murdaugh Asks Judge To Recuse Herself In Jail House Calls Case](https://www.fitsnews.com/2022/03/11/alex-murdaugh-asks-judge-to-recuse-herself-in-jail-house-calls-case/)** |
 | **March 14, 2022**|
-| [Federal Judge Recuses Herself In Alex Murdaugh Jail House Phone Calls Case](https://www.fitsnews.com/2022/03/14/murdaugh-jailhouse-calls-case-jail-director-says-judge-shouldnt-recuse-herself/) |
+| **[Federal Judge Recuses Herself In Alex Murdaugh Jail House Phone Calls Case](https://www.fitsnews.com/2022/03/14/murdaugh-jailhouse-calls-case-jail-director-says-judge-shouldnt-recuse-herself/)** |
 |  **March 16, 2022**|
-| [‘Murdaugh Murders’ Jail House Calls: Detention Center Attorney Bites Back At ‘Bulldogs’](https://www.fitsnews.com/2022/03/16/murdaugh-murders-jail-house-calls-detention-center-attorney-bites-back-at-bulldogs/) |
-| [Suspended Beaufort attorney indicted in Murdaugh fraud case](https://www.postandcourier.com/murdaugh-updates/suspended-beaufort-attorney-indicted-in-murdaugh-fraud-case/article_2af562aa-a53a-11ec-bb66-cf1b66cecf86.html) |
-| [Cory Fleming — Alex Murdaugh’s Alleged Co-Conspirator In $4.3 Million Scheme — Indicted](https://www.fitsnews.com/2022/03/16/suspended-attorney-cory-fleming-murdaughs-alleged-co-conspirator-in-4-3-million-scheme-arrested-sources-say/) |
+| **[‘Murdaugh Murders’ Jail House Calls: Detention Center Attorney Bites Back At ‘Bulldogs’](https://www.fitsnews.com/2022/03/16/murdaugh-murders-jail-house-calls-detention-center-attorney-bites-back-at-bulldogs/)** |
+| **[Suspended Beaufort attorney indicted in Murdaugh fraud case](https://www.postandcourier.com/murdaugh-updates/suspended-beaufort-attorney-indicted-in-murdaugh-fraud-case/article_2af562aa-a53a-11ec-bb66-cf1b66cecf86.html)** |
+| **[Cory Fleming — Alex Murdaugh’s Alleged Co-Conspirator In $4.3 Million Scheme — Indicted](https://www.fitsnews.com/2022/03/16/suspended-attorney-cory-fleming-murdaughs-alleged-co-conspirator-in-4-3-million-scheme-arrested-sources-say/)** |
 |  **March 17, 2022**|
-| [Judge Sets Bond At $100K For Alleged Murdaugh Co-Conspirator Cory Fleming](https://www.fitsnews.com/2022/03/17/judge-sets-bond-at-100k-for-alleged-murdaugh-co-conspirator-cory-fleming/) |
-| [Beaufort attorney posts bail on charges tied to Murdaugh fraud case](https://www.postandcourier.com/murdaugh-updates/beaufort-attorney-posts-bail-on-charges-tied-to-murdaugh-fraud-case/article_5e4b321a-a5f8-11ec-acf9-8717ecd5f30b.html) |
+| **[Judge Sets Bond At $100K For Alleged Murdaugh Co-Conspirator Cory Fleming](https://www.fitsnews.com/2022/03/17/judge-sets-bond-at-100k-for-alleged-murdaugh-co-conspirator-cory-fleming/)** |
+| **[Beaufort attorney posts bail on charges tied to Murdaugh fraud case](https://www.postandcourier.com/murdaugh-updates/beaufort-attorney-posts-bail-on-charges-tied-to-murdaugh-fraud-case/article_5e4b321a-a5f8-11ec-acf9-8717ecd5f30b.html)** |
 | **March 18, 2022**|
-| [‘All My Love!’: In Plea To The Georgia Bar, Fleming Includes Texts and A Letter From Alex Murdaugh](https://www.fitsnews.com/2022/03/18/all-my-love-in-plea-to-the-georgia-bar-fleming-includes-texts-and-a-letter-from-alex-murdaugh/) |
+| **[‘All My Love!’: In Plea To The Georgia Bar, Fleming Includes Texts and A Letter From Alex Murdaugh](https://www.fitsnews.com/2022/03/18/all-my-love-in-plea-to-the-georgia-bar-fleming-includes-texts-and-a-letter-from-alex-murdaugh/)** |
 |  **March 21, 2022**|
-| [Murdaugh Murders: South Carolina’s ‘Journalist Of The Year’ Still Spinning For The Status Quo](https://www.fitsnews.com/2022/03/21/murdaugh-murders-south-carolinas-journalist-of-the-year-still-spinning-for-the-status-quo/) |
-| [Parker’s Hired Investigator To Follow Paul Murdaugh; She Bought Alcohol for Minors, Attorney Alleges](https://www.fitsnews.com/2022/03/21/parkers-hired-investigator-to-follow-paul-murdaugh-she-bought-alcohol-for-minors-attorney-alleges/) |
+| **[Murdaugh Murders: South Carolina’s ‘Journalist Of The Year’ Still Spinning For The Status Quo](https://www.fitsnews.com/2022/03/21/murdaugh-murders-south-carolinas-journalist-of-the-year-still-spinning-for-the-status-quo/)** |
+| **[Parker’s Hired Investigator To Follow Paul Murdaugh; She Bought Alcohol for Minors, Attorney Alleges](https://www.fitsnews.com/2022/03/21/parkers-hired-investigator-to-follow-paul-murdaugh-she-bought-alcohol-for-minors-attorney-alleges/)** |
 |  **March 24, 2022**|
-| [South Carolina Police Chief Got ‘Loan’ From Alex Murdaugh One Month After Double Homicide](https://www.fitsnews.com/2022/03/24/south-carolina-police-chief-got-loan-from-alex-murdaugh-one-month-after-double-homicide/) |
+| **[South Carolina Police Chief Got ‘Loan’ From Alex Murdaugh One Month After Double Homicide](https://www.fitsnews.com/2022/03/24/south-carolina-police-chief-got-loan-from-alex-murdaugh-one-month-after-double-homicide/)** |
 | **March 25, 2022**|
-| [Alex Murdaugh Admits To Stealing $4.3 Million In Confession Of Judgment To Satterfield Family](https://www.fitsnews.com/2022/03/25/alex-murdaugh-admits-to-stealing-4-3-million-in-confession-of-judgment-to-satterfield-family/) |
+| **[Alex Murdaugh Admits To Stealing $4.3 Million In Confession Of Judgment To Satterfield Family](https://www.fitsnews.com/2022/03/25/alex-murdaugh-admits-to-stealing-4-3-million-in-confession-of-judgment-to-satterfield-family/)** |
 | **March 27, 2022**|
-| [Murdaugh family hopes for answers as investigation continues in loved ones’ killing](https://www.postandcourier.com/murdaugh-updates/murdaugh-family-hopes-for-answers-as-investigation-continues-in-loved-ones-killing/article_dd1e12a6-9fc7-11ec-aacc-df6ffc6e8158.html) |
-| [$58 in Maggie Murdaugh’s Bank Account? What New Docs Tell Us About the Murdaughs’ Finances](https://www.fitsnews.com/2022/03/29/58-in-maggie-murdaughs-bank-account-what-new-docs-tell-us-about-the-murdaughs-finances/) |
+| **[Murdaugh family hopes for answers as investigation continues in loved ones’ killing](https://www.postandcourier.com/murdaugh-updates/murdaugh-family-hopes-for-answers-as-investigation-continues-in-loved-ones-killing/article_dd1e12a6-9fc7-11ec-aacc-df6ffc6e8158.html)** |
+| **[$58 in Maggie Murdaugh’s Bank Account? What New Docs Tell Us About the Murdaughs’ Finances](https://www.fitsnews.com/2022/03/29/58-in-maggie-murdaughs-bank-account-what-new-docs-tell-us-about-the-murdaughs-finances/)** |
 | **March 29, 2022**|
-| [Mallory Beach Case: Private Detective, ‘Knife Fighter’ Ordered To Hand Over Work They Did For Greg Parker](https://www.fitsnews.com/2022/03/29/mallory-beach-case-private-detective-knife-fighter-ordered-to-hand-over-work-they-did-for-greg-parker/) |
-| [Murdaugh Murders: Cop Who Got Loan From Alex Murdaugh Loads Up On Family, Law Firm Contributions](https://www.fitsnews.com/2022/03/29/murdaugh-murders-cop-who-got-loan-from-alex-murdaugh-loads-up-on-family-law-firm-contributions/) |
+| **[Mallory Beach Case: Private Detective, ‘Knife Fighter’ Ordered To Hand Over Work They Did For Greg Parker](https://www.fitsnews.com/2022/03/29/mallory-beach-case-private-detective-knife-fighter-ordered-to-hand-over-work-they-did-for-greg-parker/)** |
+| **[Murdaugh Murders: Cop Who Got Loan From Alex Murdaugh Loads Up On Family, Law Firm Contributions](https://www.fitsnews.com/2022/03/29/murdaugh-murders-cop-who-got-loan-from-alex-murdaugh-loads-up-on-family-law-firm-contributions/)** |
 | **March 31, 2022** |
-| [Questions remain about information, footage reportedly collected on Paul Murdaugh](https://www.postandcourier.com/murdaugh-updates/questions-remain-about-information-footage-reportedly-collected-on-paul-murdaugh/article_6aee946c-b124-11ec-b7bf-4b41d0e11e1e.html) |
-| [Murdaugh Murders: SLED Clarifies Role Of Fourteenth Circuit Solicitor’s Office In Homicide Investigation](https://www.fitsnews.com/2022/03/31/murdaugh-murders-sled-clarifies-role-of-fourteenth-circuit-solicitors-office-in-homicide-investigation/) |
+| **[Questions remain about information, footage reportedly collected on Paul Murdaugh](https://www.postandcourier.com/murdaugh-updates/questions-remain-about-information-footage-reportedly-collected-on-paul-murdaugh/article_6aee946c-b124-11ec-b7bf-4b41d0e11e1e.html)** |
+| **[Murdaugh Murders: SLED Clarifies Role Of Fourteenth Circuit Solicitor’s Office In Homicide Investigation](https://www.fitsnews.com/2022/03/31/murdaugh-murders-sled-clarifies-role-of-fourteenth-circuit-solicitors-office-in-homicide-investigation/)** |
 | **April 1, 2022**|
 | **[Recusal Drama: How Duffie Stone’s Failure To Acknowledge Clear Conflict Of Interest Complicates ‘Murdaugh Murders’ Probe](https://www.fitsnews.com/2022/04/01/recusal-timeline-how-duffie-stones-failure-to-acknowledge-clear-conflict-of-interest-has-complicated-murdaugh-murders-investigation/)** |
 | **April 2, 2022**|
@@ -653,7 +654,7 @@
 | **[Alex Murdaugh Violated Court Order In Trying To Disclaim Wife’s Estate](https://www.fitsnews.com/2022/06/07/alex-murdaugh-violated-court-order-in-trying-to-disclaim-wifes-estate/)** |
 | **[Alex Murdaugh faces cascade of lawsuits 1 year after double homicide of wife, son](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-faces-cascade-of-lawsuits-1-year-after-double-homicide-of-wife-son/article_971dc258-e692-11ec-bb25-fb41a02d7a87.html) |
 | **June 8, 2022**|
-| [Murdaugh Murders: Timing On Murder Indictments?](https://www.fitsnews.com/2022/06/08/murduagh-murders-timing-on-murder-indictments/)** |
+| **[Murdaugh Murders: Timing On Murder Indictments?](https://www.fitsnews.com/2022/06/08/murduagh-murders-timing-on-murder-indictments/)** |
 | A graveside service is held at Hampton Cemetery for both Paul and Maggie Murdaugh. |
 |  **June 10, 2022**|
 | **[Alex Murdaugh Jailhouse Tapes In Mail, On Way To Media Outlets](https://www.fitsnews.com/2022/06/10/alex-murdaugh-jailhouse-tapes-in-mail-on-way-to-media-outlets/)** |
