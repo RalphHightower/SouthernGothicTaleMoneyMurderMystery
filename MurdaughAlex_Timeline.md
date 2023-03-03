@@ -336,7 +336,7 @@
 | **October  19, 2021** |
 | **[Commentary: Judge Mullen doesn’t have the option of testifying about Murdaugh case](https://www.postandcourier.com/opinion/commentary/commentary-judge-mullen-doesnt-have-the-option-of-testifying-about-murdaugh-case/article_304b8714-2b98-11ec-88b9-b39eb151f39c.html)** |
 | **[Alex Murdaugh denied bond after arrest in alleged settlement scam](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-denied-bond-after-arrest-in-alleged-settlement-scam/article_9ea4b468-2fb4-11ec-b4c6-f7392a864b5a.html)** |
-| **[Murdaugh Murders Court Hearing: Bravo, Judge Clifton Newman](https://www.fitsnews.com/2021/10/19/murdaugh-murders-court-hearing-bravo-judge-clifton-newman/) ** |
+| **[Murdaugh Murders Court Hearing: Bravo, Judge Clifton Newman](https://www.fitsnews.com/2021/10/19/murdaugh-murders-court-hearing-bravo-judge-clifton-newman/)** |
 | **[‘He’s A Liar And A Cheat’: Alex Murdaugh Denied Bond](https://www.fitsnews.com/2021/10/19/murdaugh-murders-saga-alex-murdaugh-denied-bond/)** |
 |  **October 20, 2021** |
 | **[Murdaugh Murders Saga: ‘Murdaughs In Vegas’](https://www.fitsnews.com/2021/10/20/murdaugh-murders-saga-murdaughs-in-vegas/)** |
@@ -359,7 +359,7 @@
 | **October 30, 2021** |
 | **[Murdaugh housekeeper’s family say it’s hard not to believe a con was in play early](https://www.postandcourier.com/murdaugh-updates/murdaugh-housekeepers-family-say-its-hard-not-to-believe-a-con-was-in-play-early/article_39b530ec-3990-11ec-8fba-db256449353f.html)** |
 | **November 1, 2021**  |
-| **[Murdaugh Murders Saga: Another Federal Conflict Of Interest?](https://www.fitsnews.com/2021/11/01/murdaugh-murders-saga-another-federal-conflict-of-interest/) **|
+| **[Murdaugh Murders Saga: Another Federal Conflict Of Interest?](https://www.fitsnews.com/2021/11/01/murdaugh-murders-saga-another-federal-conflict-of-interest/)** |
 | **November 2, 2021** |
 | **[‘A Clear Message’: Judge Rules To Freeze Alex Murdaugh’s Assets, Appoint Receivers](https://www.fitsnews.com/2021/11/02/murdaugh-murders-saga-judge-rules-to-freeze-alex-murdaughs-assets-appoint-receivers/)** |
 | **[Judge approves plan to freeze Alex Murdaugh’s assets, place under independent control](https://www.postandcourier.com/murdaugh-updates/judge-approves-plan-to-freeze-alex-murdaughs-assets-place-under-independent-control/article_8dc79576-3bd9-11ec-83ed-13197fe0d24c.html)** |
@@ -431,7 +431,7 @@
 | **[Murdaugh Murders Saga: Will Judicial Leniency Infect South Carolina’s Highest Profile Case?](https://www.fitsnews.com/2021/12/09/murdaugh-murders-saga-will-judicial-leniency-infect-south-carolinas-highest-profile-case/)** |
 | **December 10, 2021** |
 | **[Alex Murdaugh’s bond hearing on latest charges rescheduled](https://www.postandcourier.com/murdaugh-updates/alex-murdaughs-bond-hearing-on-latest-charges-rescheduled/article_0b0a5a84-5a05-11ec-9a26-93c8c118ca79.html)** |
-| **[Alex Murdaugh’s Bond Hearing Now Scheduled For Monday Morning](https://www.fitsnews.com/2021/12/10/alex-murdaughs-bond-hearing-now-scheduled-for-monday-morning/) |
+| **[Alex Murdaugh’s Bond Hearing Now Scheduled For Monday Morning](https://www.fitsnews.com/2021/12/10/alex-murdaughs-bond-hearing-now-scheduled-for-monday-morning/)** |
 | **December 12, 2021**  |
 | **[Mallory Beach Case: Attorneys For Convenience Store Respond To Allegations They Leaked Photos, Video](https://www.fitsnews.com/2021/12/12/mallory-beach-case-attorneys-for-convenience-store-respond-to-allegations-they-leaked-photos-video/)** |
 | **December 13, 2021** |
@@ -627,7 +627,7 @@
 |  **April 22, 2022**|
 | **[Liens Against Murdaugh Properties Canceled; Buyers Lined Up For Moselle, Edisto Beach House](https://www.fitsnews.com/2022/04/22/liens-taken-off-murdaugh-properties-buyers-lined-up-for-moselle-edisto-beach-house/)** |
 | **April 26, 2022**|
-| **[High-Velocity Impact Spatter Directly Ties Alex Murdaugh To Double Homicide, Sources Say](https://www.fitsnews.com/2022/04/26/high-velocity-impact-spatter-directly-ties-alex-murdaugh-to-double-homicide-sources-say/) |
+| **[High-Velocity Impact Spatter Directly Ties Alex Murdaugh To Double Homicide, Sources Say](https://www.fitsnews.com/2022/04/26/high-velocity-impact-spatter-directly-ties-alex-murdaugh-to-double-homicide-sources-say/)** |
 | **[Murdaugh Murders Saga: South Carolina Grand Jury Was Probing Alex Murdaugh’s Finances Prior To Double Homicide](https://www.fitsnews.com/2022/04/26/murdaugh-murders-saga-south-carolina-grand-jury-was-probing-alex-murdaughs-finances-prior-to-double-homicide/)** |
 |  **April 27, 2022**|
 | **[Alex Murdaugh Paid $110K For A Funeral Home In 2020? That Seems … Unusual](https://www.fitsnews.com/2022/04/27/alex-murdaugh-paid-110k-for-a-funeral-home-in-2020-that-seems-unusual/)** |
