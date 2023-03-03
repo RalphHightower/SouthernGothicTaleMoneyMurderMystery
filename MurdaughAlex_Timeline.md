@@ -115,7 +115,7 @@
 | **June 17, 2021**|
 | **[Paul Murdaugh received threats before his death, Murdaugh family members say](https://www.postandcourier.com/murdaugh-updates/paul-murdaugh-received-threats-before-his-death-murdaugh-family-members-say/article_b66471c4-cf6f-11eb-b899-eb01e7713afd.html)**|
 |*“I didn’t think it was a credible threat,”* he said in the segment. *“If it was, I would have tried to do something or notify someone. But, I guess, maybe I made a mistake.”*, John Murdaugh, Paul's brother.  *“I really don’t know of any enemies,”* Randy Murdaugh said. *“You hear all this talk on the social media with regard to Paul. I don’t know of anybody that would truly be an enemy or truly want to harm them.”* |
-| *[The Post and Courier sues SLED, Colleton County for public records in Murdaugh murder case](https://www.postandcourier.com/murdaugh-updates/the-post-and-courier-sues-sled-colleton-county-for-public-records-in-murdaugh-murder-case/article_e584d152-cea6-11eb-80f1-1fd35058d57f.html)** |
+| **[The Post and Courier sues SLED, Colleton County for public records in Murdaugh murder case](https://www.postandcourier.com/murdaugh-updates/the-post-and-courier-sues-sled-colleton-county-for-public-records-in-murdaugh-murder-case/article_e584d152-cea6-11eb-80f1-1fd35058d57f.html)** |
 | Alex Murdaugh's brothers, Randy Murdaugh IV and John Marvin Murdaugh, appear in an exclusive interview with ABC News in which they plead with the public to come forward with any information. They say they don't know whether the family has enemies but Paul Murdaugh had received threats. |
 | **June 18, 2021**|
 | **[‘A Slap In the Face’: Update In The Stephen Smith Case And Murdaugh Murders](https://www.fitsnews.com/2021/06/18/a-slap-in-the-face-update-in-the-stephen-smith-case-and-murdaugh-murders/)** |
@@ -142,7 +142,7 @@
 | *“I want to thank everyone for the incredible love and support that we have received over the last few weeks. Now is the time to bring justice for Maggie and Paul,”* Alex Murdaugh said in the statement issued by the publicist. *“Buster and I, along with Maggie’s mother, father and our entire family, ask that anyone with helpful information immediately call the SLED tip line or Crime Stoppers.”*|
 |*“You see words like ‘dynasty’ used and ‘power’ and I don’t know exactly how people use those words,”* Randy Murdaugh said. *“But we’re just regular people.. and we’re hurting just like they would be hurting.”* |
 | **July 1, 2021**|
-| [Beyond the Headlines: The Murdaugh Case](https://www.postandcourier.com/beyond-the-headlines/beyond-the-headlines-the-murdaugh-case/article_dae0cd38-daad-11eb-b7cb-ab83bc1405b0.html) |
+| **[Beyond the Headlines: The Murdaugh Case](https://www.postandcourier.com/beyond-the-headlines/beyond-the-headlines-the-murdaugh-case/article_dae0cd38-daad-11eb-b7cb-ab83bc1405b0.html)** |
 | **[Understand SC: Lack of details about Murdaugh homicides leaves questions, rumors](https://www.postandcourier.com/beyond-the-headlines/beyond-the-headlines-the-murdaugh-case/article_dae0cd38-daad-11eb-b7cb-ab83bc1405b0.html)** |
 |  **July 4, 2021** |
 |**[Murdaugh Murders: Investigators Are Looking At Alex And Maggie’s Marital Status](https://www.fitsnews.com/2021/07/04/murdaugh-murders-investigators-looking-at-alex-and-maggies-marital-status/)** |
@@ -289,7 +289,7 @@
 | **[Murdaugh spokeswoman pushes back on report of rift in marriage before unsolved slayings](https://www.postandcourier.com/murdaugh-updates/murdaugh-spokeswoman-pushes-back-on-report-of-rift-in-marriage-before-unsolved-slayings/article_4c67ca0e-2204-11ec-88e9-b731033fb5ce.html)** |
 | **[Murdaugh Civil Trial: Judge Rejects Change Of Venue Motion](https://www.fitsnews.com/2021/09/30/murdaugh-civil-trial-judge-rejects-change-of-venue-motion/) |
 | **October 2, 2021**|
-| [Scoppe: Tentacles of Murdaugh saga reach beyond SC law enforcement into judicial selection](https://www.postandcourier.com/opinion/commentary/scoppe-tentacles-of-murdaugh-saga-reach-beyond-sc-law-enforcement-into-judicial-selection/article_9eade3e0-222f-11ec-af36-f78cc1c9b597.html)** |
+| **[Scoppe: Tentacles of Murdaugh saga reach beyond SC law enforcement into judicial selection](https://www.postandcourier.com/opinion/commentary/scoppe-tentacles-of-murdaugh-saga-reach-beyond-sc-law-enforcement-into-judicial-selection/article_9eade3e0-222f-11ec-af36-f78cc1c9b597.html)** |
 | **[Murdaugh Civil Trial: Vicky Ward’s Testimony Sought Over Alleged Sale Of Confidential Deposition](https://www.fitsnews.com/2021/10/02/murdaugh-civil-trial-vicky-wards-testimony-sought-over-alleged-sale-of-confidential-deposition/)** |
 | **October 3, 2021**|
 | **[Law firm reaches settlement, suit claiming millions owed to Murdaugh housekeeper’s sons](https://www.postandcourier.com/murdaugh-updates/law-firm-reaches-settlement-suit-claiming-millions-owed-to-murdaugh-housekeepers-sons/article_648f0242-24a6-11ec-b6d2-fb47e1753d13.html)** |
@@ -376,7 +376,7 @@
 | **November 9, 2021** |
 | **[Murdaugh Murders Saga: About The Drugs](https://www.fitsnews.com/2021/11/09/murdaugh-murders-saga-about-the-drugs/)** |
 |  **November 10, 2021** |
-| [‘A Desperate Act By A Desperate Man’: Attorneys Petition To Get Alex Murdaugh Out Of Jail](https://www.fitsnews.com/2021/11/10/a-desperate-act-by-a-desperate-man-attorneys-petition-to-get-alex-murdaugh-out-of-jail/)** |
+| **[‘A Desperate Act By A Desperate Man’: Attorneys Petition To Get Alex Murdaugh Out Of Jail](https://www.fitsnews.com/2021/11/10/a-desperate-act-by-a-desperate-man-attorneys-petition-to-get-alex-murdaugh-out-of-jail/)** |
 | **[Alex Murdaugh denied bail after psychiatric evaluation; lawyers appeal to Supreme Court](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-denied-bail-after-psychiatric-evaluation-lawyers-appeal-to-supreme-court/article_f231496e-4226-11ec-895d-5fefa6b16cf3.html)** |
 | **[Murdaugh Murders Saga: Alex Murdaugh Staying Behind Bars As Judge Denies Bond A Second Time](https://www.fitsnews.com/2021/11/10/murdaugh-murders-saga-alex-murdaugh-staying-behind-bars-as-judge-denies-bond-a-second-time/)**|
 |Disgraced lawyer is *“a danger to both himself and the community,” judge affirms …* |
@@ -393,7 +393,7 @@
 | **November 17, 2021** |
 | **[Alex Murdaugh’s Attorneys Ask Court To Toss Satterfield Lawsuit Because Others Repaid Stolen Money](https://www.fitsnews.com/2021/11/17/alex-murdaughs-attorneys-ask-court-to-dismiss-satterfield-lawsuit-because-others-paid-for-stolen-money/)** |
 | **November 18, 2021** |
-| [Murdaugh lawyers ask court to drop latest civil suit, claiming debts repaid](https://www.postandcourier.com/murdaugh-updates/murdaugh-lawyers-ask-court-to-drop-latest-civil-suit-claiming-debts-repaid/article_220d8780-4883-11ec-8552-fb2a64af7539.html)** |
+| **[Murdaugh lawyers ask court to drop latest civil suit, claiming debts repaid](https://www.postandcourier.com/murdaugh-updates/murdaugh-lawyers-ask-court-to-drop-latest-civil-suit-claiming-debts-repaid/article_220d8780-4883-11ec-8552-fb2a64af7539.html)** |
 | **[Murdaugh Murders Saga: A Hidden Objective In Alex Murdaugh’s Latest Legal Maneuvering?](https://www.fitsnews.com/2021/11/18/murdaugh-murders-saga-a-hidden-objective-in-alex-murdaughs-latest-legal-maneuvering/)** |
 | **November 19, 2021** |
 | **[Alex Murdaugh Faces 27 New Charges; Accused of Stealing $5 Million, Including From Trooper Injured in Line of Duty](https://www.fitsnews.com/2021/11/19/several-charges-coming-against-alex-murdaugh-sources-say/)** |
@@ -453,11 +453,11 @@
 | **December 26, 2021**|
 | **[Newsmaker: The Murdaugh saga](https://www.postandcourier.com/murdaugh-updates/newsmaker-the-murdaugh-saga/article_e365e89e-5f5a-11ec-b1e6-2bf086fbc7c5.html)** |
 |  **December 27, 2021**|
-| [Two Charges Formally Dropped Against Alex Murdaugh in Satterfield Case](https://www.fitsnews.com/2021/12/27/two-charges-formally-dropped-against-alex-murdaugh-in-satterfield-case/) |
+| **[Two Charges Formally Dropped Against Alex Murdaugh in Satterfield Case](https://www.fitsnews.com/2021/12/27/two-charges-formally-dropped-against-alex-murdaugh-in-satterfield-case/)** |
 | **December 30, 2021** |
-| [PMPED Recently Took $300K in Attorney Fees From Murdaugh’s Alleged Victim, Attorney Says](https://www.fitsnews.com/2021/12/30/pmped-recently-took-300k-in-attorney-fees-from-murdaughs-alleged-victim-attorney-says/) |
+| **[PMPED Recently Took $300K in Attorney Fees From Murdaugh’s Alleged Victim, Attorney Says](https://www.fitsnews.com/2021/12/30/pmped-recently-took-300k-in-attorney-fees-from-murdaughs-alleged-victim-attorney-says/)** |
 |  **December 31, 2021**|
-| [PMPED Partners Splitting Amid Murdaugh Investigations, Sources And Documents Say](https://www.fitsnews.com/2021/12/31/pmped-is-ditching-murdaugh-from-law-firm-name-documents-show/) |
+| **[PMPED Partners Splitting Amid Murdaugh Investigations, Sources And Documents Say](https://www.fitsnews.com/2021/12/31/pmped-is-ditching-murdaugh-from-law-firm-name-documents-show/)** |
 | **January 5, 2022**|
 | **[CityWatch: From the Murdaughs to Marky Mark, SC scandals go big](https://www.postandcourier.com/columbia/opinion/citywatch-from-the-murdaughs-to-marky-mark-sc-scandals-go-big/article_ff8d777a-6cad-11ec-822b-a70b29b1e94d.html)** |
 | **[Murdaugh’s Alleged Co-Conspirators Expected To Be Indicted Soon, Sources Say](https://www.fitsnews.com/2022/01/05/murdaughs-alleged-co-conspirators-expected-to-be-indicted-soon-sources-say/)** |
@@ -529,7 +529,7 @@
 | **[Two More Survivors of 2019 Boat Crash File Lawsuits Against Murdaughs, Including Maggie And Paul](https://www.fitsnews.com/2022/02/15/two-passengers-in-2019-boat-crash-file-lawsuits-against-murdaughs-including-maggie-and-paul/)** |
 | **[Disgraced SC attorney Alex Murdaugh’s estate listed for sale, but legal hurdles remain](https://www.postandcourier.com/murdaugh-updates/disgraced-sc-attorney-alex-murdaughs-estate-listed-for-sale-but-legal-hurdles-remain/article_0afdcf06-8eaa-11ec-b2fc-5b63e7adacca.html)** |
 |  **February 17, 2022**|
-| **(Murdaugh Murders Saga: Independent Review Of Stephen Smith’s Autopsy Needed](https://www.fitsnews.com/2022/02/17/murdaugh-murders-saga-forensic-review-of-stephen-smiths-autopsy-required/)** |
+| **[Murdaugh Murders Saga: Independent Review Of Stephen Smith’s Autopsy Needed](https://www.fitsnews.com/2022/02/17/murdaugh-murders-saga-forensic-review-of-stephen-smiths-autopsy-required/)** |
 | **February 18, 2022**|
 | **[Interview: Prominent Attorney Breaks Down Boating Under The Influence, Driving Under The Influence Laws](https://www.fitsnews.com/2022/02/18/interview-expert-attorney-breaks-down-boating-under-the-influence-driving-under-the-influence-laws/)** |
 | **February 23, 2022**|
@@ -890,7 +890,7 @@
 | **October 3, 2022**|
 | **[‘Murdaugh Murders’ Saga: Feds Fire Back At Russell Laffitte](https://www.fitsnews.com/2022/10/03/murdaugh-murders-saga-feds-fire-back-at-russell-laffitte/)** |
 | **October 5, 2022**|
-| [‘Murdaugh Murders’ Saga: Attorney General’s Office Blasts ‘Unprecedented’ Subpoena Request From Alex Murdaugh’s Lawyers](https://www.fitsnews.com/2022/10/05/murdaugh-murders-saga-attorney-generals-office-blasts-unprecedented-subpoena-request-from-alex-murdaughs-lawyers/) |
+| **[‘Murdaugh Murders’ Saga: Attorney General’s Office Blasts ‘Unprecedented’ Subpoena Request From Alex Murdaugh’s Lawyers](https://www.fitsnews.com/2022/10/05/murdaugh-murders-saga-attorney-generals-office-blasts-unprecedented-subpoena-request-from-alex-murdaughs-lawyers/)** |
 | **October 6, 2022**|
 | **[Alex Murdaugh, former law partners named as defendants in new lawsuit](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-former-law-partners-named-as-defendants-in-new-lawsuit/article_32c34542-49a4-11ed-beff-8bbaa23fe17b.html)** |
 | **[‘Murdaugh Murders’ Saga: Charleston Feds Facing Scrutiny As Criminal Case Escalates](https://www.fitsnews.com/2022/10/06/murdaugh-murders-saga-charleston-feds-facing-scrutiny-as-criminal-case-escalates/)** |
@@ -938,7 +938,7 @@
 |**[Scoppe: Why a judicial speed trap in Alex Murdaugh’s Colleton County is being dismantled](https://www.postandcourier.com/opinion/commentary/scoppe-why-a-judicial-speed-trap-in-alex-murdaughs-colleton-county-is-being-dismantled/article_6ede7644-50d1-11ed-8ed3-fbcf3e7885b2.html)** |
 | **[‘Murdaugh Murders’ Saga: Witness Saw Alex Murdaugh ‘Hiding Evidence’ In Immediate Aftermath Of Double Homicide](https://www.fitsnews.com/2022/10/22/murdaugh-murders-saga-witness-saw-alex-murdaugh-hiding-evidence-in-immediate-aftermath-of-double-homicide/)**|
 | **October 25, 2022**|
-| [Alex Murdaugh’s former law office strikes back over claim of wrongdoing](https://www.postandcourier.com/murdaugh-updates/alex-murdaughs-former-law-office-strikes-back-over-claim-of-wrongdoing/article_27c0c9da-5476-11ed-87d7-430dd080a4f7.html)** |
+| **[Alex Murdaugh’s former law office strikes back over claim of wrongdoing](https://www.postandcourier.com/murdaugh-updates/alex-murdaughs-former-law-office-strikes-back-over-claim-of-wrongdoing/article_27c0c9da-5476-11ed-87d7-430dd080a4f7.html)** |
 | **[Recordings detail SC judge’s attempts to orchestrate arrest of troubled man](https://www.postandcourier.com/murdaugh-updates/recordings-detail-sc-judges-attempts-to-orchestrate-arrest-of-troubled-man/article_d1336084-547d-11ed-9b76-e312195ba3f8.html)** |
 | **[‘Murdaugh Murders’ Saga: Alex Murdaugh’s Attorneys Push For Delay In Civil Case](https://www.fitsnews.com/2022/10/25/murdaugh-murders-saga-alex-murdaughs-attorneys-push-for-delay-in-civil-case/)** |
 | **October 26, 2022**|
@@ -948,7 +948,7 @@
 |**October 28, 2022** |
 |**[Editorial: SC Supreme Court needs to condemn Mullen’s inappropriate intervention](https://www.postandcourier.com/opinion/editorials/editorial-sc-supreme-court-needs-to-condemn-mullens-inappropriate-intervention/article_c6b032e6-5567-11ed-acef-a7fbd1185d2a.html) |
 | **October 30, 2022**|
-| [Alex Murdaugh’s hometown struggles to get out from under his shadow](https://www.postandcourier.com/news/alex-murdaughs-hometown-struggles-to-get-out-from-under-his-shadow/article_be5db3ee-4e31-11ed-b8c6-a3aaa50b00bc.html)**|
+| **[Alex Murdaugh’s hometown struggles to get out from under his shadow](https://www.postandcourier.com/news/alex-murdaughs-hometown-struggles-to-get-out-from-under-his-shadow/article_be5db3ee-4e31-11ed-b8c6-a3aaa50b00bc.html)**|
 | HAMPTON — Weekends here are even quieter than weekdays. At least Julienne’s is open on a Thursday, and old-timers can rib each other around the big wooden table. But on a Saturday afternoon, the coffee shop is sealed tight, along with most of the other brick storefronts on Hampton’s main street.|
 | For the better part of an hour, the only movement is of a pair of alley cats in a garbage can outside the town’s four loan-servicing centers. *“The cash you need is only a local call away!”* says the script on one window. The economic precariousness of Hampton, a town of about 3,000 that is also the county seat, could reasonably be its most salient quality. When the Nevamar plastic laminate factory closed in 2014, it took the last union manufacturing jobs in the region. |
 |Yet recently, this 4½-mile square mile swath of rural South Carolina has become known for something completely different.|
@@ -989,9 +989,9 @@ For example, a citizens group is demanding to know where over $5 million raised 
 | **[November 4, 2022](https://www.nbc.com/dateline/video/dark-waters/9000267436)** |
 | **[NBC Dateline, "Dark Waters"](https://www.nbc.com/dateline/video/dark-waters/9000267436)**|
 |Craig Melvin[^3] reveals surprising and exclusive new details about the deaths and legal cases surrounding Alex Murdaugh, the South Carolina lawyer accused of killing his wife and son last year. **Available until 09/17/23** |
-| [‘Murdaugh Murders’ Saga: Russell Laffitte Breaks Silence In Interview With ‘Distant Relative’](https://www.fitsnews.com/2022/11/04/murdaugh-murders-saga-russell-laffitte-breaks-silence-in-interview-with-distant-relative/)** |
+| **[‘Murdaugh Murders’ Saga: Russell Laffitte Breaks Silence In Interview With ‘Distant Relative’](https://www.fitsnews.com/2022/11/04/murdaugh-murders-saga-russell-laffitte-breaks-silence-in-interview-with-distant-relative/)** |
 | **November 5, 2022 |
-|[Ex-SC banker Russell Laffitte set to face trial in first Murdaugh case to be heard by jury](https://www.postandcourier.com/murdaugh-updates/ex-sc-banker-russell-laffitte-set-to-face-trial-in-first-murdaugh-case-to-be/article_fc914238-5bb6-11ed-ba1e-a7e71f677bf9.html)** |
+| **[Ex-SC banker Russell Laffitte set to face trial in first Murdaugh case to be heard by jury](https://www.postandcourier.com/murdaugh-updates/ex-sc-banker-russell-laffitte-set-to-face-trial-in-first-murdaugh-case-to-be/article_fc914238-5bb6-11ed-ba1e-a7e71f677bf9.html)** |
 | **November 7, 2022**|
 | **[Alex Murdaugh could be called as witness in trial of ex-banker Russell Laffitte](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-could-be-called-as-witness-in-trial-of-ex-banker-russell-laffitte/article_955d2e2a-5ecb-11ed-9326-1779ac2256aa.html)** |
 | **[Understand Murdaugh: Ex-Palmetto State Bank CEO Russell Laffitte goes to trial](https://www.postandcourier.com/understandsc/understand-murdaugh-ex-palmetto-state-bank-ceo-russell-laffitte-goes-to-trial/article_b29ad5da-5a22-11ed-8c71-d3468565a1d6.html)** |
@@ -999,15 +999,15 @@ For example, a citizens group is demanding to know where over $5 million raised 
 | **[‘Murdaugh Murders’ Saga: Russell Laffitte Trial Kicks Off In Charleston](https://www.fitsnews.com/2022/11/07/murdaugh-murders-saga-russell-laffitte-trial-kicks-off-in-charleston/)** |
 | **[‘Murdaugh Murders’ Saga: Vicki Ward Affidavit Blows Up Boat Crash Conspiracy Case](https://www.fitsnews.com/2022/11/07/murdaugh-murders-saga-vicki-ward-affidavit-blows-up-boat-crash-conspiracy-case/)** |
 | **November 8, 2022**|
-| [Alex Murdaugh looms large as federal trial of ex-banker Russell Laffitte begins](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-looms-large-as-federal-trial-of-ex-banker-russell-laffitte-begins/article_41847d86-5f74-11ed-835c-4fe0a2c69150.html)** |
-| [Former Murdaugh banker Russell Laffitte battles fraud charges on 1st day of federal trial](https://www.postandcourier.com/murdaugh-updates/former-murdaugh-banker-russell-laffitte-battles-fraud-charges-on-1st-day-of-federal-trial/article_18cbcab8-5f8b-11ed-be32-af9842410fcb.html)** |
+| **[Alex Murdaugh looms large as federal trial of ex-banker Russell Laffitte begins](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-looms-large-as-federal-trial-of-ex-banker-russell-laffitte-begins/article_41847d86-5f74-11ed-835c-4fe0a2c69150.html)** |
+| **[Former Murdaugh banker Russell Laffitte battles fraud charges on 1st day of federal trial](https://www.postandcourier.com/murdaugh-updates/former-murdaugh-banker-russell-laffitte-battles-fraud-charges-on-1st-day-of-federal-trial/article_18cbcab8-5f8b-11ed-be32-af9842410fcb.html)** |
 | **[Murdaugh reporter reveals supplier of leaked court records in 2019 boat crash case](https://www.postandcourier.com/murdaugh-updates/murdaugh-reporter-reveals-supplier-of-leaked-court-records-in-2019-boat-crash-case/article_3479c488-5f70-11ed-94fa-3fdf8db38851.html)** |
 | **[Selling Moselle](https://www.postandcourier.com/archives/murdaugh/selling-moselle/article_f0f69592-5fa1-11ed-a8d0-6fde6f2dc3d6.html)** |
 | **[The Russell Laffitte trial starts tomorrow](https://www.postandcourier.com/archives/murdaugh/the-russell-laffitte-trial-starts-tomorrow/article_5c3c3e1e-5fa8-11ed-9349-b38c5f489b05.html)** |
 | **[‘Murdaugh Murders’ Saga: Anatomy Of An Alibi Ironclad and airtight? Not anymore](https://www.fitsnews.com/2022/11/08/murdaugh-murders-saga-anatomy-of-an-alibi/)** |
 | **[‘Murdaugh Murders’ Saga: First Day Of Russell Laffitte’s Trial Filled With Revelations](https://www.fitsnews.com/2022/11/08/murdaugh-murders-saga-first-day-of-russell-laffittes-trial-filled-with-revelations/)** |
 | **November 9, 2022**|
-| [Ex-Murdaugh banker Russell Laffitte faces federal witnesses at 2nd day of fraud trial](https://www.postandcourier.com/murdaugh-updates/ex-murdaugh-banker-russell-laffitte-faces-federal-witnesses-at-2nd-day-of-fraud-trial/article_bcecfb32-5f7a-11ed-8324-2fa482f2b182.html) |
+| **[Ex-Murdaugh banker Russell Laffitte faces federal witnesses at 2nd day of fraud trial](https://www.postandcourier.com/murdaugh-updates/ex-murdaugh-banker-russell-laffitte-faces-federal-witnesses-at-2nd-day-of-fraud-trial/article_bcecfb32-5f7a-11ed-8324-2fa482f2b182.html) |
 | **[Russell Laffitte’s sister-in-law testifies Alex Murdaugh investigation revealed bank’s role](https://www.postandcourier.com/murdaugh-updates/russell-laffittes-sister-in-law-testifies-alex-murdaugh-investigation-revealed-banks-role/article_27193b10-5f99-11ed-8bc9-b3b47121ce83.html) |
 | **[‘Murdaugh Murders’ Saga: Russell Laffitte’s Trial Is Exposing Alex Murdaugh’s Motive For Murder](https://www.fitsnews.com/2022/11/09/murdaugh-murders-saga-russell-laffittes-trial-is-exposing-alex-murdaughs-motive-for-murder/)** |
 | **November 10, 2022**|
@@ -1025,10 +1025,10 @@ For example, a citizens group is demanding to know where over $5 million raised 
 | **[Alex Murdaugh’s former law clients testify on Day 4 of Russell Laffitte trial](https://www.postandcourier.com/murdaugh-updates/alex-murdaughs-former-law-clients-testify-on-day-4-of-russell-laffitte-trial/article_b30301ec-61ce-11ed-8e90-ef6af6b8d0fc.html)** |
 | **[‘Murdaugh Murders’ Saga: Russell Laffitte Trial Continues In Charleston](https://www.fitsnews.com/2022/11/14/murdaugh-murders-saga-russell-laffitte-trial-continues-in-charleston/)** |
 | **November 15, 2022**|
-| *2[Former Alex Murdaugh clients say they didn’t know Russell Laffitte controlled funds](https://www.postandcourier.com/murdaugh-updates/former-alex-murdaugh-clients-say-they-didnt-know-russell-laffitte-controlled-funds/article_ccf4033e-61d4-11ed-bc3d-737f2195184a.html)** |
+| **[Former Alex Murdaugh clients say they didn’t know Russell Laffitte controlled funds](https://www.postandcourier.com/murdaugh-updates/former-alex-murdaugh-clients-say-they-didnt-know-russell-laffitte-controlled-funds/article_ccf4033e-61d4-11ed-bc3d-737f2195184a.html)** |
 | **[Prosecutors untangle web of alleged fraud at Day 5 of the Russell Laffitte trial](https://www.postandcourier.com/murdaugh-updates/prosecutors-untangle-web-of-alleged-fraud-at-day-5-of-the-russell-laffitte-trial/article_a4bbbd64-61d2-11ed-aded-c7c43df1a714.html)** |
 | **[Understand Murdaugh: Decision on death penalty looms in Murdaugh case](https://www.postandcourier.com/understandsc/understand-murdaugh-decision-on-death-penalty-looms-in-murdaugh-case/article_d2d6ad72-6140-11ed-8b48-d7d1ca77af60.html)** |
-| [‘Murdaugh Murders’ Saga: Attorneys Getting Testy](https://www.fitsnews.com/2022/11/15/murdaugh-murders-saga-attorneys-getting-testy/)** |
+| **[‘Murdaugh Murders’ Saga: Attorneys Getting Testy](https://www.fitsnews.com/2022/11/15/murdaugh-murders-saga-attorneys-getting-testy/)** |
 | **November 16, 2022**|
 | **[Bank official reported Russell Laffitte’s handling of Murdaugh client checks as suspicious](https://www.postandcourier.com/murdaugh-updates/bank-official-reported-russell-laffittes-handling-of-murdaugh-client-checks-as-suspicious/article_1505e968-61de-11ed-b9c8-877fe3387bbc.html)** |
 | **[Russell Laffitte offers defense against bank fraud charges on Day 6 of federal trial](https://www.postandcourier.com/murdaugh-updates/russell-laffitte-offers-defense-against-bank-fraud-charges-on-day-6-of-federal-trial/article_7a9873c8-61dd-11ed-8c2c-1b88a583ac21.html)** |
@@ -1038,7 +1038,7 @@ For example, a citizens group is demanding to know where over $5 million raised 
 | **[‘Murdaugh Murders’ Saga: Alex Murdaugh Claims He Was ‘Not Present’ When Wife, Son Were Slain](https://www.fitsnews.com/2022/11/17/murdaugh-murders-saga-alex-murdaugh-claims-he-was-not-present-when-wife-son-were-slain/)** |
 | **[‘Murdaugh Murders’ Saga: Is Russell Laffitte Trying To Go To Federal Prison?](https://www.fitsnews.com/2022/11/17/murdaugh-murders-saga-is-russell-laffitte-trying-to-go-to-federal-prison/)** |
 | **November 18, 2022**|
-| [Could Alex Murdaugh actually get the death penalty?](https://www.postandcourier.com/archives/murdaugh/could-alex-murdaugh-actually-get-the-death-penalty/article_6ef64cbe-675c-11ed-9328-2b292fb5a844.html)** |
+| **[Could Alex Murdaugh actually get the death penalty?](https://www.postandcourier.com/archives/murdaugh/could-alex-murdaugh-actually-get-the-death-penalty/article_6ef64cbe-675c-11ed-9328-2b292fb5a844.html)** |
 | **[Ex-banker Russell Laffitte claims he didn’t know he was helping Alex Murdaugh steal money](https://www.postandcourier.com/murdaugh-updates/ex-banker-russell-laffitte-claims-he-didnt-know-he-was-helping-alex-murdaugh-steal-money/article_84d00c38-65d5-11ed-a4d0-5b60346833db.html) **|
 | **[Russell Laffitte testimony expected today](https://www.postandcourier.com/russell-laffitte-testimony-expected-today/article_089db5b4-675d-11ed-88e2-cbcc0558ed54.html)** |
 | **[Russell Laffitte to testify about Alex Murdaugh’s finances at federal fraud trial](https://www.postandcourier.com/murdaugh-updates/russell-laffitte-to-testify-about-alex-murdaughs-finances-at-federal-fraud-trial/article_7aaceda4-65d3-11ed-af9d-9b68cb704e7f.html)** |
@@ -1053,17 +1053,17 @@ For example, a citizens group is demanding to know where over $5 million raised 
 | **[Understand Murdaugh: Catching up on the murder saga](https://www.postandcourier.com/understandsc/understand-murdaugh-catching-up-on-the-murder-saga/article_8f29deec-6a95-11ed-83df-c7a960be5b0e.html)** |
 | **[Murdaugh Murders’ Saga: Day Of Reckoning For Russell Laffitte Trial](https://www.fitsnews.com/2022/11/22/murdaugh-murders-saga-day-of-reckoning-for-russell-laffitte/)** |
 | **[Murdaugh Murders’ Saga: How Much Time Is Russell Laffitte Facing?](https://www.fitsnews.com/2022/11/22/murdaugh-murders-saga-how-much-time-is-russell-laffitte-facing/)** |
-| [Russell Laffitte Verdict: Guilty On All Counts](https://www.fitsnews.com/2022/11/22/russell-laffitte-verdict-guilty-on-all-counts/) |
+| **[Russell Laffitte Verdict: Guilty On All Counts](https://www.fitsnews.com/2022/11/22/russell-laffitte-verdict-guilty-on-all-counts/)** |
 | **November 23, 2022**|
 | **[Murdaugh murder case attorneys: SLED manipulated expert on ‘spatter’ evidence](https://www.postandcourier.com/murdaugh-updates/murdaugh-murder-case-attorneys-sled-manipulated-expert-on-spatter-evidence/article_1884b3ae-6b74-11ed-9a89-0f57ae8ab56c.html)** |
 | **[Catching up on the Murdaugh murder saga: Part 2](https://www.postandcourier.com/understandsc/catching-up-on-the-murdaugh-murder-saga-part-2/article_b7bc2bf0-6b74-11ed-b786-97e7868f6649.html)** |
 | **[Murdaugh accomplice, Hampton banker Laffitte is convicted in federal trial. What’s next?](https://www.postandcourier.com/murdaugh-updates/murdaugh-accomplice-hampton-banker-laffitte-is-convicted-in-federal-trial-whats-next/article_ba6c5230-6b51-11ed-aa51-c7f7b380b539.html)** |
 | **[‘Murdaughs’ Saga: Defense Motion Disputes ‘False Testimony,’ Alleges Evidence Was ‘Destroyed’](https://www.fitsnews.com/2022/11/23/murdaugh-murders-saga-defense-motion-disputes-false-testimony-about-destroyed-evidence/)** |
 | **November 28, 2022**|
-|**[‘Murdaugh Murders’ Saga: New Filing From Alex Murdaugh’s Lawyers Zeroes In On Blood Spatter Expert Investigators accused of "cajoling" potential trial witness into changing his report .](https://www.fitsnews.com/2022/11/28/murdaugh-murders-saga-new-filing-from-alex-murdaughs-lawyers-zeroes-in-on-blood-spatter-expert/) |
-| [‘Murdaugh Murders’ Saga: New Filing From Alex Murdaugh’s Lawyers Zeroes In On Blood Spatter Expert](https://www.fitsnews.com/2022/11/28/murdaugh-murders-saga-new-filing-from-alex-murdaughs-lawyers-zeroes-in-on-blood-spatter-expert/)** |
+|**[‘Murdaugh Murders’ Saga: New Filing From Alex Murdaugh’s Lawyers Zeroes In On Blood Spatter Expert Investigators accused of "cajoling" potential trial witness into changing his report .](https://www.fitsnews.com/2022/11/28/murdaugh-murders-saga-new-filing-from-alex-murdaughs-lawyers-zeroes-in-on-blood-spatter-expert/)** |
+| **[‘Murdaugh Murders’ Saga: New Filing From Alex Murdaugh’s Lawyers Zeroes In On Blood Spatter Expert](https://www.fitsnews.com/2022/11/28/murdaugh-murders-saga-new-filing-from-alex-murdaughs-lawyers-zeroes-in-on-blood-spatter-expert/)** |
 | **November 29, 2022**|
-| [‘Murdaugh Murders’ Saga: Alex Murdaugh Offered Plea Deal, Sources Say](https://www.fitsnews.com/2022/11/29/murdaugh-murders-saga-alex-murdaugh-offered-plea-deal-sources-say/) |
+| **[‘Murdaugh Murders’ Saga: Alex Murdaugh Offered Plea Deal, Sources Say](https://www.fitsnews.com/2022/11/29/murdaugh-murders-saga-alex-murdaugh-offered-plea-deal-sources-say/)** |
 | **November 30, 2022**|
 | **[Lawyers running Alex Murdaugh’s finances secure $1.3M for victims, want $374K in fees](https://www.postandcourier.com/murdaugh-updates/lawyers-running-alex-murdaughs-finances-secure-1-3m-for-victims-want-374k-in-fees/article_13afd11a-702e-11ed-97e7-d3770eade152.html)**|
 |Their $1.3 million settlement fund, which still could grow, includes money from the following sources: |
