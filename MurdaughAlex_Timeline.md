@@ -689,7 +689,7 @@
 | **June 3, 2022**|
 | **[Attorney For Alex Murdaugh Dies …](https://www.fitsnews.com/2022/06/03/attorney-for-alex-murdaugh-dies/)** |
 | **June 5, 2022**|
-| **[Federal Judge Denies Alex Murdaugh’s Request To Block Release Of Jailhouse Calls](https://www.fitsnews.com/2022/06/05/federal-judge-denies-alex-murdaughs-request-to-block-release-of-jailhouse-calls/) |
+| **[Federal Judge Denies Alex Murdaugh’s Request To Block Release Of Jailhouse Calls](https://www.fitsnews.com/2022/06/05/federal-judge-denies-alex-murdaughs-request-to-block-release-of-jailhouse-calls/)** |
 | **June 6, 2022**|
 | **[‘Mountain Of Evidence’ Piling Up Against Alex Murdaugh In Murder Case, Sources Say](https://www.fitsnews.com/2022/06/06/mountain-of-evidence-piling-up-against-alex-murdaugh-in-murder-case-sources-say/)** |
 |  **June 7, 2022**|
@@ -707,9 +707,11 @@
 | **June 15, 2022**|
 | **[‘It Wasn’t That Bad’: Alex Murdaugh Tells Details About His ‘Shooting’ During Jailhouse Call](https://www.fitsnews.com/2022/06/15/it-wasnt-that-bad-alex-murdaugh-tells-details-about-his-shooting-during-jailhouse-call/)** |
 | **2022-06-16**|
-| **[In the Matter of Richard Alexander Murdaugh, Respondent](https://www.sccourts.org/courtOrders/displayOrder.cfm?orderNo=2022-06-16-01)**
-|The Supreme Court of South Carolina<br>In the Matter of Richard Alexander Murdaugh, Respondent.|
-|Appellate Case No. 2022-000812 <br> *Therefore, we dispense with further proceedings before the Commission.  Respondent shall appear in the Supreme Court Courtroom at 11:00 a.m. on June 22, 2022, to present legal argument on the question of whether this Court should disbar Respondent from the practice of law.* |
+| **[In the Matter of Richard Alexander Murdaugh, Respondent](https://www.sccourts.org/courtOrders/displayOrder.cfm?orderNo=2022-06-16-01)** |
+|The Supreme Court of South Carolina|
+|In the Matter of Richard Alexander Murdaugh, Respondent.|
+|Appellate Case No. 2022-000812 |
+| *Therefore, we dispense with further proceedings before the Commission.  Respondent shall appear in the Supreme Court Courtroom at 11:00 a.m. on June 22, 2022, to present legal argument on the question of whether this Court should disbar Respondent from the practice of law.* |
 | **June 16, 2022**|
 | **[SC Supreme Court moves to disbar disgraced attorney Alex Murdaugh](https://www.postandcourier.com/murdaugh-updates/sc-supreme-court-moves-to-disbar-disgraced-attorney-alex-murdaugh/article_6dde2ace-ed9d-11ec-b712-2f51847c3550.html)** |
 | **[‘Hampton County Attorney’ No More: SC Supreme Court Moves To Disbar Alex Murdaugh With Unprecedented Speed](https://www.fitsnews.com/2022/06/16/hampton-county-attorney-no-more-alex-murdaugh-to-be-disbarred/)** |
@@ -717,7 +719,8 @@
 |[Alex Murdaugh waives right to contest SC Supreme Court disbarring him from practicing law](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-waives-right-to-contest-sc-supreme-court-disbarring-him-from-practicing-law/article_62f20e40-f19a-11ec-b012-db4269140b06.html) |
 | **2022-06-21**|
 | **[In the Matter of Richard Alexander Murdaugh, Respondent.](https://www.sccourts.org/courtOrders/displayOrder.cfm?orderNo=2022-06-21-01)** |
-|The Supreme Court of South Carolina<br>In the Matter of Richard Alexander Murdaugh, Respondent.|
+|The Supreme Court of South Carolina|
+In the Matter of Richard Alexander Murdaugh, Respondent.|
 |Appellate Case No. 2022-000812|
 |*Respondent waives all rights to a hearing, states he does not contest the Court's "authority and decision" to disbar him from the practice of law, and requests that the Court cancel the hearing currently scheduled for June 22, 2022.*|
 | **June  22, 2022** |
@@ -738,7 +741,10 @@
 | **[Attorney Alex Murdaugh expected to face charges in SC killings of wife, son](https://www.postandcourier.com/murdaugh-updates/attorney-alex-murdaugh-expected-to-face-charges-in-sc-killings-of-wife-son/article_4dbd5a5c-e2a4-11ec-a6d0-8b30d468e8da.html)** |
 | **2022-07-12**|
 | **[In the Matter of Richard Alexander Murdaugh, Respondent.](https://www.sccourts.org/courtOrders/displayOrder.cfm?orderNo=2022-07-12-01)**|
-| The Supreme Court of South Carolina<br>In the Matter of Richard Alexander Murdaugh, Respondent.<br>Appellate Case 2022-000812<br> *Based on his admitted reprehensible misconduct, we hereby disbar Respondent Richard Alexander Murdaugh from the practice of law in South Carolina.*  |
+| The Supreme Court of South Carolina|
+|In the Matter of Richard Alexander Murdaugh, Respondent.|
+|Appellate Case 2022-000812|
+| *Based on his admitted reprehensible misconduct, we hereby disbar Respondent Richard Alexander Murdaugh from the practice of law in South Carolina.*  |
 | **July 12, 2022**|
 | **[Murdaugh Murders: Charges Coming Against Alex Murdaugh](https://www.fitsnews.com/2022/07/12/murdaugh-murders-charges-coming-against-alex-murdaugh/)** |
 | **[SC Supreme Court Formally Disbars Alex Murdaugh Ahead Of Expected Murder Indictment](https://www.fitsnews.com/2022/07/12/sc-supreme-court-formally-disbars-alex-murdaugh-ahead-of-expected-murder-indictment/)** |
@@ -1030,14 +1036,13 @@ For example, a citizens group is demanding to know where over $5 million raised 
 | **November 16, 2022**|
 | **[Bank official reported Russell Laffitte’s handling of Murdaugh client checks as suspicious](https://www.postandcourier.com/murdaugh-updates/bank-official-reported-russell-laffittes-handling-of-murdaugh-client-checks-as-suspicious/article_1505e968-61de-11ed-b9c8-877fe3387bbc.html)** |
 | **[Russell Laffitte offers defense against bank fraud charges on Day 6 of federal trial](https://www.postandcourier.com/murdaugh-updates/russell-laffitte-offers-defense-against-bank-fraud-charges-on-day-6-of-federal-trial/article_7a9873c8-61dd-11ed-8c2c-1b88a583ac21.html)** |
-| **[Russell Laffitte offers defense against bank fraud charges on Day 6 of federal trial](https://www.postandcourier.com/murdaugh-updates/russell-laffitte-offers-defense-against-bank-fraud-charges-on-day-6-of-federal-trial/article_7a9873c8-61dd-11ed-8c2c-1b88a583ac21.html)** |
 | **[‘Murdaugh Murders’ Saga: Prosecution Rests In Russell Laffitte Trial](https://www.fitsnews.com/2022/11/16/murdaugh-murders-saga-prosecution-rests-in-russell-laffitte-trial/)** |
 | **[Alex Murdaugh files formal alibi ahead of January double murder trial](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-files-formal-alibi-ahead-of-january-double-murder-trial/article_51ebd4be-66b6-11ed-b334-df6550b2493e.html)** |
 | **[‘Murdaugh Murders’ Saga: Alex Murdaugh Claims He Was ‘Not Present’ When Wife, Son Were Slain](https://www.fitsnews.com/2022/11/17/murdaugh-murders-saga-alex-murdaugh-claims-he-was-not-present-when-wife-son-were-slain/)** |
 | **[‘Murdaugh Murders’ Saga: Is Russell Laffitte Trying To Go To Federal Prison?](https://www.fitsnews.com/2022/11/17/murdaugh-murders-saga-is-russell-laffitte-trying-to-go-to-federal-prison/)** |
 | **November 18, 2022** |
 | **[Could Alex Murdaugh actually get the death penalty?](https://www.postandcourier.com/archives/murdaugh/could-alex-murdaugh-actually-get-the-death-penalty/article_6ef64cbe-675c-11ed-9328-2b292fb5a844.html)** |
-| **[Ex-banker Russell Laffitte claims he didn’t know he was helping Alex Murdaugh steal money](https://www.postandcourier.com/murdaugh-updates/ex-banker-russell-laffitte-claims-he-didnt-know-he-was-helping-alex-murdaugh-steal-money/article_84d00c38-65d5-11ed-a4d0-5b60346833db.html) **|
+| **[Ex-banker Russell Laffitte claims he didn’t know he was helping Alex Murdaugh steal money](https://www.postandcourier.com/murdaugh-updates/ex-banker-russell-laffitte-claims-he-didnt-know-he-was-helping-alex-murdaugh-steal-money/article_84d00c38-65d5-11ed-a4d0-5b60346833db.html)** |
 | **[Russell Laffitte testimony expected today](https://www.postandcourier.com/russell-laffitte-testimony-expected-today/article_089db5b4-675d-11ed-88e2-cbcc0558ed54.html)** |
 | **[Russell Laffitte to testify about Alex Murdaugh’s finances at federal fraud trial](https://www.postandcourier.com/murdaugh-updates/russell-laffitte-to-testify-about-alex-murdaughs-finances-at-federal-fraud-trial/article_7aaceda4-65d3-11ed-af9d-9b68cb704e7f.html)** |
 | **[‘Murdaugh Murders’** Saga: Bank Sought $20 Million From Investors As Exposure To Alex Murdaugh Metastasized](https://www.fitsnews.com/2022/11/18/murdaugh-murders-saga-bank-sought-20-million-from-investors-as-exposure-to-alex-murdaugh-metastasize/)** |
@@ -1138,7 +1143,7 @@ Altogether, through 19 indictments containing 99 charges against Murdaugh, the S
 | **[‘Murdaugh Murders’ Saga: South Carolina Attorney General Summons Reinforcements](https://www.fitsnews.com/2022/12/23/murdaugh-murders-saga-south-carolina-attorney-general-summons-reinforcements/)** |
 | **[Parker’s to be tried alongside Murdaughs in 2019 boat crash wrongful death case](https://www.postandcourier.com/murdaugh-updates/parkers-to-be-tried-alongside-murdaughs-in-2019-boat-crash-wrongful-death-case/article_7628db96-82dc-11ed-b121-335e50ac601a.html)** |
 | **December 24, 2022**|
-| [Murdaugh Murders’ Saga: Lowcountry Probate Judge Deposed](https://www.fitsnews.com/2022/12/24/murdaugh-murders-saga-lowcountry-probate-judge-deposed/)|
+| **[Murdaugh Murders’ Saga: Lowcountry Probate Judge Deposed](https://www.fitsnews.com/2022/12/24/murdaugh-murders-saga-lowcountry-probate-judge-deposed/)** |
 |Sheila Odom: *“How could it go on that long and I not have caught it?”* |
 | **December 29, 2022**|
 | **[Another Juror Submits Sworn Statement In Russell Laffitte’s Bid For New Trial](https://www.fitsnews.com/2022/12/29/another-juror-submits-affidavit-in-russell-laffittes-bid-for-new-trial/)**|
