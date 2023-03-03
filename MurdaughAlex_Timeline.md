@@ -694,7 +694,7 @@
 | **[‘Mountain Of Evidence’ Piling Up Against Alex Murdaugh In Murder Case, Sources Say](https://www.fitsnews.com/2022/06/06/mountain-of-evidence-piling-up-against-alex-murdaugh-in-murder-case-sources-say/)** |
 |  **June 7, 2022**|
 | **[Alex Murdaugh Violated Court Order In Trying To Disclaim Wife’s Estate](https://www.fitsnews.com/2022/06/07/alex-murdaugh-violated-court-order-in-trying-to-disclaim-wifes-estate/)** |
-| **[Alex Murdaugh faces cascade of lawsuits 1 year after double homicide of wife, son](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-faces-cascade-of-lawsuits-1-year-after-double-homicide-of-wife-son/article_971dc258-e692-11ec-bb25-fb41a02d7a87.html) |
+| **[Alex Murdaugh faces cascade of lawsuits 1 year after double homicide of wife, son](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-faces-cascade-of-lawsuits-1-year-after-double-homicide-of-wife-son/article_971dc258-e692-11ec-bb25-fb41a02d7a87.html)** |
 | **June 8, 2022**|
 | **[Murdaugh Murders: Timing On Murder Indictments?](https://www.fitsnews.com/2022/06/08/murduagh-murders-timing-on-murder-indictments/)** |
 | A graveside service is held at Hampton Cemetery for both Paul and Maggie Murdaugh. |
@@ -860,7 +860,7 @@
 | **[‘Murdaugh Murders’ Saga: Forge Consulting Fires Back](https://www.fitsnews.com/2022/09/12/murdaugh-murders-saga-forge-consulting-fires-back/)** |
 | **[‘Murdaugh Murders’ Saga: Key Ruling In Boat Crash Lawsuit Likely Headed For Appeal](https://www.fitsnews.com/2022/09/13/murdaugh-murders-saga-key-ruling-in-boat-crash-lawsuit-likely-headed-for-appeal/)** |
 | **September 13, 2022** |
-| **[‘Murdaugh Murders’ Saga: The Masquerade Ball?](https://www.fitsnews.com/2022/09/13/murdaugh-murders-saga-the-masquerade-ball/) |
+| **[‘Murdaugh Murders’ Saga: The Masquerade Ball?](https://www.fitsnews.com/2022/09/13/murdaugh-murders-saga-the-masquerade-ball/)** |
 | **September 15, 2022**|
 | **[Beach attorney threatens appeal as judge seeks January trial in Murdaugh boat crash case](https://www.postandcourier.com/murdaugh-updates/beach-attorney-threatens-appeal-as-judge-seeks-january-trial-in-murdaugh-boat-crash-case/article_55426994-3460-11ed-a0e6-0f92a5179801.html)** |
 | **[Beyond the Headlines: The Murdaugh murders](https://www.postandcourier.com/beyond-the-headlines/beyond-the-headlines-the-murdaugh-murders/article_2424b480-3527-11ed-9a62-b34dab3e5090.html)** |
@@ -988,7 +988,7 @@ For example, a citizens group is demanding to know where over $5 million raised 
 | **[NBC Dateline, "Dark Waters"](https://www.nbc.com/dateline/video/dark-waters/9000267436)**|
 |Craig Melvin[^3] reveals surprising and exclusive new details about the deaths and legal cases surrounding Alex Murdaugh, the South Carolina lawyer accused of killing his wife and son last year. **Available until 09/17/23** |
 | **[‘Murdaugh Murders’ Saga: Russell Laffitte Breaks Silence In Interview With ‘Distant Relative’](https://www.fitsnews.com/2022/11/04/murdaugh-murders-saga-russell-laffitte-breaks-silence-in-interview-with-distant-relative/)** |
-| **November 5, 2022 |
+| **November 5, 2022** |
 | **[Ex-SC banker Russell Laffitte set to face trial in first Murdaugh case to be heard by jury](https://www.postandcourier.com/murdaugh-updates/ex-sc-banker-russell-laffitte-set-to-face-trial-in-first-murdaugh-case-to-be/article_fc914238-5bb6-11ed-ba1e-a7e71f677bf9.html)** |
 | **November 7, 2022**|
 | **[Alex Murdaugh could be called as witness in trial of ex-banker Russell Laffitte](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-could-be-called-as-witness-in-trial-of-ex-banker-russell-laffitte/article_955d2e2a-5ecb-11ed-9326-1779ac2256aa.html)** |
@@ -1035,7 +1035,7 @@ For example, a citizens group is demanding to know where over $5 million raised 
 | **[Alex Murdaugh files formal alibi ahead of January double murder trial](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-files-formal-alibi-ahead-of-january-double-murder-trial/article_51ebd4be-66b6-11ed-b334-df6550b2493e.html)** |
 | **[‘Murdaugh Murders’ Saga: Alex Murdaugh Claims He Was ‘Not Present’ When Wife, Son Were Slain](https://www.fitsnews.com/2022/11/17/murdaugh-murders-saga-alex-murdaugh-claims-he-was-not-present-when-wife-son-were-slain/)** |
 | **[‘Murdaugh Murders’ Saga: Is Russell Laffitte Trying To Go To Federal Prison?](https://www.fitsnews.com/2022/11/17/murdaugh-murders-saga-is-russell-laffitte-trying-to-go-to-federal-prison/)** |
-| **November 18, 2022**|
+| **November 18, 2022** |
 | **[Could Alex Murdaugh actually get the death penalty?](https://www.postandcourier.com/archives/murdaugh/could-alex-murdaugh-actually-get-the-death-penalty/article_6ef64cbe-675c-11ed-9328-2b292fb5a844.html)** |
 | **[Ex-banker Russell Laffitte claims he didn’t know he was helping Alex Murdaugh steal money](https://www.postandcourier.com/murdaugh-updates/ex-banker-russell-laffitte-claims-he-didnt-know-he-was-helping-alex-murdaugh-steal-money/article_84d00c38-65d5-11ed-a4d0-5b60346833db.html) **|
 | **[Russell Laffitte testimony expected today](https://www.postandcourier.com/russell-laffitte-testimony-expected-today/article_089db5b4-675d-11ed-88e2-cbcc0558ed54.html)** |
