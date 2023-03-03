@@ -249,7 +249,7 @@
 | **[Murdaugh Murders: Judge Granted Alex Murdaugh $20,000 Bond, No GPS Monitoring](https://www.fitsnews.com/2021/09/16/murdaugh-murders-judge-granted-alex-murdaugh-20000-bond-no-gps-monitoring/)** |
 | Murdaugh surrenders to authorities. Murdaugh was arrested after he turned himself in at the Hampton County Detention Center. Officials charged him with insurance fraud, conspiracy to commit insurance fraud, and filing a false police report after they said he allegedly admitted to conspire with Smith for help committing suicide *“for the purpose of his son,”* Richard Alexander “Buster” Murdaugh Jr., *“collecting a life insurance policy valued at approximately $10 million.”*  |
 | **[Murdaugh Murders Saga: Mark Keel Throws Down The Gauntlet](https://www.fitsnews.com/2021/09/17/murdaugh-murders-saga-mark-keel-throws-down-the-gauntlet/)**||
-|*“As with all cases, SLED is committed to conducting a professional, thorough, and impartial criminal investigation, no matter where the facts lead us,”* Keel, SLED  chief, said in a press release announcing this inquiry on Monday.|
+| *“As with all cases, SLED is committed to conducting a professional, thorough, and impartial criminal investigation, no matter where the facts lead us,”* Keel, SLED chief, said in a press release announcing this inquiry on Monday.|
 | **September 17, 2021**|
 | **[Beyond the Headlines: The Murdaugh Case Part 2](https://www.postandcourier.com/beyond-the-headlines/beyond-the-headlines-the-murdaugh-case-part-2/article_d7972496-17df-11ec-9183-43fa84438aca.html)** |
 | **[Up to $4M paid after death of Murdaugh’s housekeeper, lawyer says. None went to sons.](https://www.postandcourier.com/murdaugh-updates/up-to-4m-paid-after-death-of-murdaughs-housekeeper-lawyer-says-none-went-to-sons/article_3643acec-17f1-11ec-828c-e305e8533d6e.html)** |
@@ -270,7 +270,7 @@
 | **[Murdaugh Murders: How Alex Murdaugh Allegedly Took Millions From His Dead Housekeeper’s Family](https://www.fitsnews.com/2021/09/22/murdaugh-murders-how-alex-murdaugh-allegedly-took-millions-from-his-dead-housekeepers-family/)** |
 |  **September 23, 2021**|
 | **[Murdaugh Murders Saga: Limited Federal Involvement Confirmed](https://www.fitsnews.com/2021/09/23/murdaugh-murders-saga-limited-federal-involvement-confirmed/)** |
-| **[SLED chief says Feds involved in Murdaugh family investigations](https://www.postandcourier.com/murdaugh-updates/sled-chief-says-feds-involved-in-murdaugh-family-investigations/article_3ccbed96-1caa-11ec-bfdd-cf9b70992eb9.html)**|
+| **[SLED chief says Feds involved in Murdaugh family investigations](https://www.postandcourier.com/murdaugh-updates/sled-chief-says-feds-involved-in-murdaugh-family-investigations/article_3ccbed96-1caa-11ec-bfdd-cf9b70992eb9.html)** |
 |SLED releases a statement saying agents have "uncovered other potential crimes" as part of their investigation into the double homicide of Paul and Maggie Murdaugh. The FBI and U.S. Attorney's Office for the District of South Carolina have been contacted. |
 | **September 24, 2021**|
 | **[Murdaugh’s lawyers request hearing on criminal charges as firms try to distance themselves](https://www.postandcourier.com/murdaugh-updates/murdaughs-lawyers-request-hearing-on-criminal-charges-as-firms-try-to-distance-themselves/article_ec26ce9e-1d29-11ec-8c4e-3fa03fde7db4.html)** |
@@ -368,7 +368,7 @@
 | **[Alex Murdaugh And Eddie Smith Indicted On Charges In Alleged Insurance Scam, Shooting](https://www.fitsnews.com/2021/11/04/alex-murdaugh-and-eddie-smith-indicted-on-multiple-charges-in-alleged-insurance-scam-shooting/)** |
 | **[Sham Lawsuit? Alex Murdaugh Confesses Judgment Soon After Brother Sued Him For $90K Debt](https://www.fitsnews.com/2021/11/04/sham-lawsuit-alex-murdaugh-confesses-judgement-soon-after-brother-sued-him-for-90k-debt/)** |
 | **November  5, 2021** | 
-|**[Beyond the Headlines: The Murdaugh Case (Part 3)](https://www.postandcourier.com/beyond-the-headlines/beyond-the-headlines-the-murdaugh-case-part-3/article_66925900-3e4a-11ec-8dd3-6f6275366a54.html)*** |
+|**[Beyond the Headlines: The Murdaugh Case (Part 3)](https://www.postandcourier.com/beyond-the-headlines/beyond-the-headlines-the-murdaugh-case-part-3/article_66925900-3e4a-11ec-8dd3-6f6275366a54.html)** |
 | **[Alex Murdaugh admits owing former law partner nearly $500K in loans](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-admits-owing-former-law-partner-nearly-500k-in-loans/article_e5233862-3e49-11ec-908e-8b918a108224.html)** |
 | **[Murdaugh Murders Saga: Another Shady Legal Move By Disgraced Attorney](https://www.fitsnews.com/2021/11/05/murdaugh-murders-saga-another-shady-legal-move-by-disgraced-attorney/)** |
 | **November 6, 2021**  |
@@ -418,7 +418,7 @@
 | **[As ‘Murdaugh Murders’ Saga Rolls On, South Carolina’s Top Law Enforcement Agency Seeks New Spokesperson](https://www.fitsnews.com/2021/12/05/as-murdaugh-murders-saga-rolls-on-south-carolinas-top-law-enforcement-agency-seeks-new-spokesperson/)** |
 | **[Misconduct complaints trickle in against lawyers involved in Murdaugh investigations](https://www.postandcourier.com/murdaugh-updates/misconduct-complaints-trickle-in-against-lawyers-involved-in-murdaugh-investigations/article_ff4f85c0-5473-11ec-9e0c-67f0b9099c9e.html)** |
 | **December 6, 2021**  |
-| **[Attorneys Accuse Alex Murdaugh of Paying Eddie Smith $1.8 Million, Bank of Being ‘High-Tech Laundromat’](https://www.fitsnews.com/2021/12/06/attorneys-accuse-alex-murdaugh-of-paying-eddie-smith-1-8-million-bank-of-being-high-tech-laundromat/)*** |
+| **[Attorneys Accuse Alex Murdaugh of Paying Eddie Smith $1.8 Million, Bank of Being ‘High-Tech Laundromat’](https://www.fitsnews.com/2021/12/06/attorneys-accuse-alex-murdaugh-of-paying-eddie-smith-1-8-million-bank-of-being-high-tech-laundromat/)** |
 | **[Mallory Beach’s Boyfriend Sues Alex Murdaugh And Others For Fatal Boat Crash](https://www.fitsnews.com/2021/12/06/mallory-beachs-boyfriend-sues-alex-murdaugh-and-others-for-fatal-boat-crash/)**,|
 | **December 7, 2021** |
 | **[Third bond hearing set for disgraced attorney Alex Murdaugh as legal claims pour in](https://www.postandcourier.com/murdaugh-updates/third-bond-hearing-set-for-disgraced-attorney-alex-murdaugh-as-legal-claims-pour-in/article_00d48ae2-576e-11ec-906d-8b163d4b49da.html)** |
