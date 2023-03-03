@@ -336,7 +336,7 @@
 | **October  19, 2021** |
 | **[Commentary: Judge Mullen doesn’t have the option of testifying about Murdaugh case](https://www.postandcourier.com/opinion/commentary/commentary-judge-mullen-doesnt-have-the-option-of-testifying-about-murdaugh-case/article_304b8714-2b98-11ec-88b9-b39eb151f39c.html)** |
 | **[Alex Murdaugh denied bond after arrest in alleged settlement scam](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-denied-bond-after-arrest-in-alleged-settlement-scam/article_9ea4b468-2fb4-11ec-b4c6-f7392a864b5a.html)** |
-| **[Murdaugh Murders Court Hearing: Bravo, Judge Clifton Newman](https://www.fitsnews.com/2021/10/19/murdaugh-murders-court-hearing-bravo-judge-clifton-newman/) **|
+| **[Murdaugh Murders Court Hearing: Bravo, Judge Clifton Newman](https://www.fitsnews.com/2021/10/19/murdaugh-murders-court-hearing-bravo-judge-clifton-newman/) ** |
 | **[‘He’s A Liar And A Cheat’: Alex Murdaugh Denied Bond](https://www.fitsnews.com/2021/10/19/murdaugh-murders-saga-alex-murdaugh-denied-bond/)** |
 |  **October 20, 2021** |
 | **[Murdaugh Murders Saga: ‘Murdaughs In Vegas’](https://www.fitsnews.com/2021/10/20/murdaugh-murders-saga-murdaughs-in-vegas/)** |
@@ -353,7 +353,7 @@
 | **October 29, 2021** |
 | **[Judge hears arguments on who should control Alex Murdaugh’s money](https://www.postandcourier.com/murdaugh-updates/judge-hears-arguments-on-who-should-control-alex-murdaughs-money/article_cb3f9c2a-38d5-11ec-9de5-93fb482000a9.html)** |
 | **[SC grand jury to investigate Alex Murdaugh drug pipeline](https://www.postandcourier.com/murdaugh-updates/sc-grand-jury-to-investigate-alex-murdaugh-drug-pipeline/article_d66d884c-38e8-11ec-b19c-eb5adec2bd44.html)** |
-| **[Murdaugh Murders Saga: The Money Hearing](https://www.fitsnews.com/2021/10/29/murdaugh-murders-saga-the-money-hearing/) |
+| **[Murdaugh Murders Saga: The Money Hearing](https://www.fitsnews.com/2021/10/29/murdaugh-murders-saga-the-money-hearing/)** |
 | **[Murdaugh Murders Saga: Which Drug ‘Pipeline’ Is Being Targeted?](https://www.fitsnews.com/2021/10/29/murdaugh-murders-saga-which-drug-pipeline-is-being-targeted/)** |
 | **[‘There’s No One To Defend Mr. Murdaugh’: Judge To Rule On Alex And Buster’s Assets Next Week](https://www.fitsnews.com/2021/10/29/theres-no-one-to-defend-mr-murdaugh-judge-to-rule-on-alex-and-busters-assets-next-week/)** |
 | **October 30, 2021** |
