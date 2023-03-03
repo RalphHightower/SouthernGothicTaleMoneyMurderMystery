@@ -269,7 +269,7 @@
 | **[Murdaugh Murders Saga: Just How Deep Does The Judicial Corruption Rabbit Hole Go?](https://www.fitsnews.com/2021/09/22/murdaugh-murders-saga-just-how-deep-is-the-judicial-corruption-rabbit-hole/)** |
 | **[Murdaugh Murders: How Alex Murdaugh Allegedly Took Millions From His Dead Housekeeper’s Family](https://www.fitsnews.com/2021/09/22/murdaugh-murders-how-alex-murdaugh-allegedly-took-millions-from-his-dead-housekeepers-family/)** |
 |  **September 23, 2021**|
-| **[Murdaugh Murders Saga: Limited Federal Involvement Confirmed](https://www.fitsnews.com/2021/09/23/murdaugh-murders-saga-limited-federal-involvement-confirmed/) **|
+| **[Murdaugh Murders Saga: Limited Federal Involvement Confirmed](https://www.fitsnews.com/2021/09/23/murdaugh-murders-saga-limited-federal-involvement-confirmed/)** |
 | **[SLED chief says Feds involved in Murdaugh family investigations](https://www.postandcourier.com/murdaugh-updates/sled-chief-says-feds-involved-in-murdaugh-family-investigations/article_3ccbed96-1caa-11ec-bfdd-cf9b70992eb9.html)**|
 |SLED releases a statement saying agents have "uncovered other potential crimes" as part of their investigation into the double homicide of Paul and Maggie Murdaugh. The FBI and U.S. Attorney's Office for the District of South Carolina have been contacted. |
 | **September 24, 2021**|
@@ -282,12 +282,12 @@
 | **September 28, 2021**|
 | **[Murdaugh Murders Saga: Did One Of The Last People To Talk To Paul Murdaugh Shed Any Light On Investigation?](https://www.fitsnews.com/2021/09/28/murdaugh-murders-saga-did-one-of-the-last-people-to-talk-to-paul-murdaugh-shed-any-light-on-investigation/)** |
 | **September 29, 2021**|
-| **[Top SC lawmaker hired to defend store sued in fatal boat crash involving Murdaugh family](https://www.postandcourier.com/murdaugh-updates/top-sc-lawmaker-hired-to-defend-store-sued-in-fatal-boat-crash-involving-murdaugh-family/article_a9c00e68-212e-11ec-8efb-f3a56a331d3c.html) |
+| **[Top SC lawmaker hired to defend store sued in fatal boat crash involving Murdaugh family](https://www.postandcourier.com/murdaugh-updates/top-sc-lawmaker-hired-to-defend-store-sued-in-fatal-boat-crash-involving-murdaugh-family/article_a9c00e68-212e-11ec-8efb-f3a56a331d3c.html)** |
 | **[Murdaugh Murders: Curtis Smith’s Attorney Says Accusations Don’t Add Up In Alex Murdaugh ‘Shooting’](https://www.fitsnews.com/2021/09/29/murdaugh-murders-curtis-smiths-attorney-says-accusations-dont-add-up-in-alex-murdaugh-shooting/)** |
 | **[Powerful South Carolina Lawmaker’s Presence On ‘Murdaugh Murders’ Civil Case Raises Multiple Red Flags](https://www.fitsnews.com/2021/09/29/powerful-south-carolina-lawmakers-presence-on-murdaugh-murders-civil-case-raises-multiple-red-flags/)** |
 | **September 30, 2021**|
 | **[Murdaugh spokeswoman pushes back on report of rift in marriage before unsolved slayings](https://www.postandcourier.com/murdaugh-updates/murdaugh-spokeswoman-pushes-back-on-report-of-rift-in-marriage-before-unsolved-slayings/article_4c67ca0e-2204-11ec-88e9-b731033fb5ce.html)** |
-| **[Murdaugh Civil Trial: Judge Rejects Change Of Venue Motion](https://www.fitsnews.com/2021/09/30/murdaugh-civil-trial-judge-rejects-change-of-venue-motion/) |
+| **[Murdaugh Civil Trial: Judge Rejects Change Of Venue Motion](https://www.fitsnews.com/2021/09/30/murdaugh-civil-trial-judge-rejects-change-of-venue-motion/)**  |
 | **October 2, 2021**|
 | **[Scoppe: Tentacles of Murdaugh saga reach beyond SC law enforcement into judicial selection](https://www.postandcourier.com/opinion/commentary/scoppe-tentacles-of-murdaugh-saga-reach-beyond-sc-law-enforcement-into-judicial-selection/article_9eade3e0-222f-11ec-af36-f78cc1c9b597.html)** |
 | **[Murdaugh Civil Trial: Vicky Ward’s Testimony Sought Over Alleged Sale Of Confidential Deposition](https://www.fitsnews.com/2021/10/02/murdaugh-civil-trial-vicky-wards-testimony-sought-over-alleged-sale-of-confidential-deposition/)** |
@@ -339,10 +339,10 @@
 | **[Murdaugh Murders Court Hearing: Bravo, Judge Clifton Newman](https://www.fitsnews.com/2021/10/19/murdaugh-murders-court-hearing-bravo-judge-clifton-newman/) **|
 | **[‘He’s A Liar And A Cheat’: Alex Murdaugh Denied Bond](https://www.fitsnews.com/2021/10/19/murdaugh-murders-saga-alex-murdaugh-denied-bond/)** |
 |  **October 20, 2021** |
-|**[Murdaugh Murders Saga: ‘Murdaughs In Vegas’](https://www.fitsnews.com/2021/10/20/murdaugh-murders-saga-murdaughs-in-vegas/) |
+| **[Murdaugh Murders Saga: ‘Murdaughs In Vegas’](https://www.fitsnews.com/2021/10/20/murdaugh-murders-saga-murdaughs-in-vegas/)** |
 | **[SLED releases 911 calls from Alex Murdaugh’s shooting](https://www.postandcourier.com/murdaugh-updates/sled-releases-911-calls-from-alex-murdaughs-shooting/article_5666716a-3355-11ec-8d7e-83fa28c8f991.html)** |
 | **October 22, 2021** |
-| **[Attorneys File ‘Bombshell’ Motions To Lock Up And Recover Alex and Buster Murdaugh’s Assets](https://www.fitsnews.com/2021/10/22/murdaugh-murders-attorneys-file-bombshell-motions-to-lock-up-and-recover-alex-and-busters-assets/) |**
+| **[Attorneys File ‘Bombshell’ Motions To Lock Up And Recover Alex and Buster Murdaugh’s Assets](https://www.fitsnews.com/2021/10/22/murdaugh-murders-attorneys-file-bombshell-motions-to-lock-up-and-recover-alex-and-busters-assets/)** |
 | **[Murdaugh Murders: Investigators Release 911 Calls From Roadside Shooting Incident](https://www.fitsnews.com/2021/10/22/murdaugh-murders-investigators-release-911-calls-from-roadside-shooting-incident/)** |
 | **October 25, 2021** |
 | **[Murdaugh Murders: Judge To Hear Motions On Freezing Alex And Buster’s Assets This Week](https://www.fitsnews.com/2021/10/25/murdaugh-murders-judge-to-hear-motions-on-freezing-alex-and-busters-assets-this-week/)** |
