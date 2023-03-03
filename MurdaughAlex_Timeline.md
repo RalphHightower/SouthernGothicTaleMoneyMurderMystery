@@ -39,7 +39,7 @@
 | **[Son of prominent SC family pleads not guilty to boating death charges](https://www.postandcourier.com/news/son-of-prominent-sc-family-pleads-not-guilty-to-boating-death-charges/article_6a0381ba-7000-11e9-9915-cf3dec268c12.html)** |
 | **May 8, 2019** |
 | **[Mallory Beach Case: Process Slammed](https://www.fitsnews.com/2019/05/08/mallory-beach-case-process-slammed/)** |
-| **Jul 29, 2019** |
+| **July 29, 2019** |
 | **[Son of powerful SC family charged in boating death case allowed to travel, attend school](https://www.postandcourier.com/news/son-of-powerful-sc-family-charged-in-boating-death-case-allowed-to-travel-attend-school/article_1c136d60-b224-11e9-bfc6-13421af5f53b.html)** |
 | **[Hearing Held In Beaufort County SC Boating Death Case](https://www.fitsnews.com/2019/07/29/hearing-held-in-beaufort-county-sc-boating-death-case/)** |
 | **October 28, 2019**  |
@@ -124,7 +124,7 @@
 | **[Murdaugh Murders: South Carolina Attorney General Must Step In And Remove ‘Rogue’ Solicitor](https://www.fitsnews.com/2021/06/19/murdaugh-murders-south-carolina-attorney-general-must-step-in-and-remove-rogue-solicitor/)** |
 |  **June 21, 2021**|
 | **[Murdaugh Murders: Police Release Redacted Reports In Double Homicide Investigation](https://www.fitsnews.com/2021/06/21/murdaugh-murders-police-release-reports-in-double-homicide-investigation/)**|
-| **[SLED releases redacted reports in murder case of Paul and Maggie Murdaugh](https://www.postandcourier.com/murdaugh-updates/sled-releases-redacted-reports-in-murder-case-of-paul-and-maggie-murdaugh/article_b303166c-d2ca-11eb-a6e5-73a0a55fa5b1.html) |
+| **[SLED releases redacted reports in murder case of Paul and Maggie Murdaugh](https://www.postandcourier.com/murdaugh-updates/sled-releases-redacted-reports-in-murder-case-of-paul-and-maggie-murdaugh/article_b303166c-d2ca-11eb-a6e5-73a0a55fa5b1.html)** |
 | **[Murdaugh Murders: Prosecutor With Many Conflicts Of Interest Issues Muddled Defense](https://www.fitsnews.com/2021/06/21/murdaugh-murders-prosecutor-with-many-conflicts-of-interest-issues-muddled-defense/)** |
 | **June 22, 2021** |
 | **[Murdaugh murder case leads SLED to open investigation into Hampton teen’s 2015 death](https://www.postandcourier.com/murdaugh-updates/murdaugh-murder-case-leads-sled-to-open-investigation-into-hampton-teens-2015-death/article_2dc63fea-d3cb-11eb-b7ef-b7d5eea51f2b.html)** |
@@ -165,7 +165,7 @@
 |**[Alex Murdaugh pleads for ambulance, help in 911 calls after discovering wife, son dead](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-pleads-for-ambulance-help-in-911-calls-after-discovering-wife-son-dead/article_11c50438-eb32-11eb-91df-1b336cbbd3ae.html)** |
 | **July 22, 2021**|
 | **[Investigation of boat crash involving Paul Murdaugh included missteps, roadblocks](https://www.postandcourier.com/murdaugh-updates/investigation-of-boat-crash-involving-paul-murdaugh-included-missteps-roadblocks/article_862a9b0a-ea18-11eb-926d-e7d54b29ef80.html)** |
-| [Murdaugh Murders: Investigators Release 911 Recording](https://www.fitsnews.com/2021/07/22/murdaugh-murders-investigators-release-911-recording/) |
+| **[Murdaugh Murders: Investigators Release 911 Recording](https://www.fitsnews.com/2021/07/22/murdaugh-murders-investigators-release-911-recording/)** |
 |  **August 4, 2021**|
 | **[‘His Ass Will Be Responsible’: Dashcam Video From Murdaugh Boat Crash Released](https://www.fitsnews.com/2021/08/04/his-ass-will-be-responsible-dashcam-video-from-murdaugh-boat-crash-released/)** |
 | **[Lowcountry South Carolina Drug Bust Not Tied To ‘Murdaugh Murders,’ Police Say](https://www.fitsnews.com/2021/08/04/lowcountry-south-carolina-drug-bust-not-tied-to-murdaugh-murders-police-say/)** |
@@ -180,7 +180,7 @@
 | **August 16, 2021** |
 | **[Murdaugh Case: Attorney General’s Office Releases New Photos From Fatal Boat Crash](https://www.fitsnews.com/2021/08/16/murdaugh-case-attorney-generals-office-releases-new-photos-from-fatal-boat-crash/)** |
 | **August 18, 2021**|
-| [Murdaugh Saga: Boat Crash Defense Lawyers Try To Clear Paul Murdaugh’s Name](https://www.fitsnews.com/2021/08/18/murdaugh-saga-boat-crash-defense-lawyers-try-to-clear-paul-murdaughs-name/) |
+| **[Murdaugh Saga: Boat Crash Defense Lawyers Try To Clear Paul Murdaugh’s Name](https://www.fitsnews.com/2021/08/18/murdaugh-saga-boat-crash-defense-lawyers-try-to-clear-paul-murdaughs-name/)** |
 | **[‘Anything They Get In, They Get Out Of’: Bombshell Deposition Filed In Murdaugh Case](https://www.fitsnews.com/2021/08/18/anything-they-get-in-they-get-out-of-bombshell-deposition-filed-in-murdaugh-case/)** |
 | **August 25, 2021** |
 |**[SC prosecutor steps aside from Murdaugh murder case, citing new developments](https://www.postandcourier.com/murdaugh-updates/sc-prosecutor-steps-aside-from-murdaugh-murder-case-citing-new-developments/article_c9e8ead4-05db-11ec-91ef-c7934ba9b921.html)** |
@@ -225,8 +225,8 @@
 | **[Murdaugh Murders: South Carolina Attorney General Will Handle Prosecutions, Sources Say](https://www.fitsnews.com/2021/09/10/murdaugh-murders-south-carolina-attorney-general-will-handle-prosecutions-sources-say/)** |
 | **[Murdaugh Murders: Helicopter Dispatched To Alex Murdaugh Shooting Before Sheriff’s Office](https://www.fitsnews.com/2021/09/10/murdaugh-murders-helicopter-dispatched-to-alex-murdaugh-shooting-before-sheriffs-office/)** |
 | **September 12, 2021**|
-|**[Murdaugh Murders: Embezzlement Claims Raise Stakes Of True Crime Drama](https://www.fitsnews.com/2021/09/12/murdaugh-murders-embezzlement-claims-raise-stakes-of-true-crime-drama/) |
-| **[SLED opens investigation into Alex Murdaugh amid allegations of money missing from law firm](https://www.postandcourier.com/murdaugh-updates/sled-opens-investigation-into-alex-murdaugh-amid-allegations-of-money-missing-from-law-firm/article_31b04c2a-14d7-11ec-841d-1f3e8690c7d5.html) |
+|**[Murdaugh Murders: Embezzlement Claims Raise Stakes Of True Crime Drama](https://www.fitsnews.com/2021/09/12/murdaugh-murders-embezzlement-claims-raise-stakes-of-true-crime-drama/)** |
+| **[SLED opens investigation into Alex Murdaugh amid allegations of money missing from law firm](https://www.postandcourier.com/murdaugh-updates/sled-opens-investigation-into-alex-murdaugh-amid-allegations-of-money-missing-from-law-firm/article_31b04c2a-14d7-11ec-841d-1f3e8690c7d5.html)** |
 | **[Murdaugh Murders Saga: SLED Launches Investigation Into Law Firm Embezzlement Allegations](https://www.fitsnews.com/2021/09/13/murdaugh-murders-saga-sled-launches-investigation-into-law-firm-embezzlement-allegations/)** |
 |  **September 14, 2021**|
 | **[Murdaugh Murders: Housekeeper’s Family Says They Never Got Any Money In Death Settlement](https://www.fitsnews.com/2021/09/14/murdaugh-murders-housekeepers-family-says-they-never-got-money-in-death-settlement/)** |
@@ -252,7 +252,7 @@
 |*“As with all cases, SLED is committed to conducting a professional, thorough, and impartial criminal investigation, no matter where the facts lead us,”* Keel, SLED  chief, said in a press release announcing this inquiry on Monday.|
 | **September 17, 2021**|
 | **[Beyond the Headlines: The Murdaugh Case Part 2](https://www.postandcourier.com/beyond-the-headlines/beyond-the-headlines-the-murdaugh-case-part-2/article_d7972496-17df-11ec-9183-43fa84438aca.html)** |
-| [Up to $4M paid after death of Murdaugh’s housekeeper, lawyer says. None went to sons.](https://www.postandcourier.com/murdaugh-updates/up-to-4m-paid-after-death-of-murdaughs-housekeeper-lawyer-says-none-went-to-sons/article_3643acec-17f1-11ec-828c-e305e8533d6e.html)** |
+| **[Up to $4M paid after death of Murdaugh’s housekeeper, lawyer says. None went to sons.](https://www.postandcourier.com/murdaugh-updates/up-to-4m-paid-after-death-of-murdaughs-housekeeper-lawyer-says-none-went-to-sons/article_3643acec-17f1-11ec-828c-e305e8533d6e.html)** |
 | WJCL provides a look at whether Alex Murdaugh received preferential treatment in court as well as the severity of his head wound. |
 | **September 18, 2021**|
 | In an interview with the New York Post, Curtis Edward Smith says he's being set up by Alex Murdaugh. |
@@ -295,7 +295,7 @@
 | **[Law firm reaches settlement, suit claiming millions owed to Murdaugh housekeeper’s sons](https://www.postandcourier.com/murdaugh-updates/law-firm-reaches-settlement-suit-claiming-millions-owed-to-murdaugh-housekeepers-sons/article_648f0242-24a6-11ec-b6d2-fb47e1753d13.html)** |
 | **[Murdaugh Murders Saga: Cory Fleming And His Law Firm Reach Settlement With Satterfield’s Estate](https://www.fitsnews.com/2021/10/03/murdaugh-murders-saga-are-alleged-marital-issues-factoring-into-criminal-investigations/)** |
 |  **October 5, 2021**|
-| [Murdaugh Civil Case: Journalist Refutes Claim She Paid For Confidential Court Documents](https://www.fitsnews.com/2021/10/05/murdaugh-civil-case-journalist-refutes-claim-she-paid-for-confidential-court-documents/)** |
+| **[Murdaugh Civil Case: Journalist Refutes Claim She Paid For Confidential Court Documents](https://www.fitsnews.com/2021/10/05/murdaugh-civil-case-journalist-refutes-claim-she-paid-for-confidential-court-documents/)** |
 | **[Attorneys seek to question SC judge about millions meant for Murdaugh housekeeper’s sons](https://www.postandcourier.com/murdaugh-updates/attorneys-seek-to-question-sc-judge-about-millions-meant-for-murdaugh-housekeepers-sons/article_bfdcda0c-25ff-11ec-8969-cbc4be730197.html)** |
 | **[Murdaugh Civil Case: Journalist Refutes Claim She Paid For Confidential Court Documents](https://www.fitsnews.com/2021/10/05/murdaugh-civil-case-journalist-refutes-claim-she-paid-for-confidential-court-documents/)** |
 | **[Murdaugh Law Firm Was Involved In Fraudulent Satterfield Settlement, Documents Show](https://www.fitsnews.com/2021/10/05/murdaugh-law-firm-was-involved-in-fraudulent-satterfield-settlement-motion-says/)** |
@@ -861,7 +861,7 @@
 | **[‘Murdaugh Murders’ Saga: Forge Consulting Fires Back](https://www.fitsnews.com/2022/09/12/murdaugh-murders-saga-forge-consulting-fires-back/)** |
 | **[‘Murdaugh Murders’ Saga: Key Ruling In Boat Crash Lawsuit Likely Headed For Appeal](https://www.fitsnews.com/2022/09/13/murdaugh-murders-saga-key-ruling-in-boat-crash-lawsuit-likely-headed-for-appeal/)** |
 | **September 13, 2022** |
-|[‘Murdaugh Murders’ Saga: The Masquerade Ball?](https://www.fitsnews.com/2022/09/13/murdaugh-murders-saga-the-masquerade-ball/) |
+|**[‘Murdaugh Murders’ Saga: The Masquerade Ball?](https://www.fitsnews.com/2022/09/13/murdaugh-murders-saga-the-masquerade-ball/) |
 | **September 15, 2022**|
 | **[Beach attorney threatens appeal as judge seeks January trial in Murdaugh boat crash case](https://www.postandcourier.com/murdaugh-updates/beach-attorney-threatens-appeal-as-judge-seeks-january-trial-in-murdaugh-boat-crash-case/article_55426994-3460-11ed-a0e6-0f92a5179801.html)** |
 | **[Beyond the Headlines: The Murdaugh murders](https://www.postandcourier.com/beyond-the-headlines/beyond-the-headlines-the-murdaugh-murders/article_2424b480-3527-11ed-9a62-b34dab3e5090.html)** |
