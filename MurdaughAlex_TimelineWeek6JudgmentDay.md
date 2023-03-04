@@ -115,7 +115,7 @@ Waters urged jurors not to believe what they heard when Murdaugh testified in hi
 |With a twelve-gauge shotgun in his hands, Wilson positioned Kinsey in the doorway – just as Paul Murdaugh would have stood moments before receiving the fatal shotgun blast to his head. From there, he proceeded to twist and turn awkwardly around Kinsey so as to reposition himself directly behind the witness – demonstrating how difficult it would have been for someone to get into the right position (and hold the shotgun at the right angle) to inflict a contact wound to the back of Paul Murdaugh’s head.|
 |The demonstration gave jurors a compelling visual look at the improbability of the defense’s theory of the shooting.|
 |Wilson and Kinsey also discussed – in jarring detail – how contact wounds from shotguns obliterate a victim’s facial features.|
-| *“You feel as though the forehead and the facial features are no longer there,”> Kinsey testified. *“They’ve been shredded. The person is just not there, it’s just a mess.”* |
+| *“You feel as though the forehead and the facial features are no longer there,”* Kinsey testified. *“They’ve been shredded. The person is just not there, it’s just a mess.”* |
 |Pulling up one of the graphic autopsy photos of Paul Murdaugh, Wilson asked Kinsey whether what jurors were seeing was consistent with such a wound.|
 | *“No – his face looks pretty normal,”* Kinsey said.|
 |At the heart of Wilson’s examination of Kinsey was the dynamic nature of the crime scene – the motion of both victims and the shooter.|
