@@ -731,7 +731,7 @@
 | **[SC Supreme Court moves to disbar disgraced attorney Alex Murdaugh](https://www.postandcourier.com/murdaugh-updates/sc-supreme-court-moves-to-disbar-disgraced-attorney-alex-murdaugh/article_6dde2ace-ed9d-11ec-b712-2f51847c3550.html)** |
 | **[‘Hampton County Attorney’ No More: SC Supreme Court Moves To Disbar Alex Murdaugh With Unprecedented Speed](https://www.fitsnews.com/2022/06/16/hampton-county-attorney-no-more-alex-murdaugh-to-be-disbarred/)** |
 | **June 21, 2022** |
-|[Alex Murdaugh waives right to contest SC Supreme Court disbarring him from practicing law](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-waives-right-to-contest-sc-supreme-court-disbarring-him-from-practicing-law/article_62f20e40-f19a-11ec-b012-db4269140b06.html) |
+| **[Alex Murdaugh waives right to contest SC Supreme Court disbarring him from practicing law](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-waives-right-to-contest-sc-supreme-court-disbarring-him-from-practicing-law/article_62f20e40-f19a-11ec-b012-db4269140b06.html)** |
 | **[2022-06-21-01](https://www.sccourts.org/courtOrders/displayOrder.cfm?orderNo=2022-06-21-01)** |
 |The Supreme Court of South Carolina|
 |In the Matter of Richard Alexander Murdaugh, Respondent.|
@@ -917,9 +917,9 @@
 | **[‘Murdaugh Murders’ Saga: Judge Reverses Himself On Severing Boat Crash Defendants](https://www.fitsnews.com/2022/09/27/murdaugh-murders-saga-judge-reverses-himself-on-severing-boat-crash-defendants/)** |
 | **September 28, 2022**|
 | **[‘Murdaugh Murders’ Saga: Russell Laffitte’s Federal Case Points To Broader Financial Crimes Conspiracy](https://www.fitsnews.com/2022/09/28/murdaugh-murders-saga-russell-laffittes-federal-case-points-to-broader-financial-crimes-conspiracy/)** |
-| **October 2, 2022**|**
+| **October 2, 2022**|
 | **[Questions, complaints linger over state judge’s role in Murdaugh saga](https://www.postandcourier.com/murdaugh-updates/questions-complaints-linger-over-state-judges-role-in-murdaugh-saga/article_ca712be6-40c3-11ed-8a48-4b5c2e2a0e5b.html)** |
-| **October 3, 2022**|
+| **October 3, 2022** |
 | **[‘Murdaugh Murders’ Saga: Feds Fire Back At Russell Laffitte](https://www.fitsnews.com/2022/10/03/murdaugh-murders-saga-feds-fire-back-at-russell-laffitte/)** |
 | **October 5, 2022**|
 | **[‘Murdaugh Murders’ Saga: Attorney General’s Office Blasts ‘Unprecedented’ Subpoena Request From Alex Murdaugh’s Lawyers](https://www.fitsnews.com/2022/10/05/murdaugh-murders-saga-attorney-generals-office-blasts-unprecedented-subpoena-request-from-alex-murdaughs-lawyers/)** |
