@@ -784,8 +784,8 @@
 | **[Founder Of Forge Consulting, His Wife Killed In Crash, Sources Say](https://www.fitsnews.com/2022/07/17/founder-of-forge-consulting-his-wife-killed-in-crash-sources-say/)** |
 | **July 18, 2022**|
 | **[Murdaugh Murders: Death Penalty Decision Looms Large For Alan Wilson](https://www.fitsnews.com/2022/07/18/murdaugh-murders-death-penalty-decision-looms-large-for-alan-wilson/)** |
-| **July  19, 2022**
- | **[Editorial: Alex Murdaugh isn’t like other people — except in this one tragic way](https://www.postandcourier.com/opinion/editorials/editorial-alex-murdaugh-isnt-like-other-people-except-in-this-one-tragic-way/article_48969a4e-06a7-11ed-899f-f762c6f1b95d.html)** |
+| **July  19, 2022** |
+| **[Editorial: Alex Murdaugh isn’t like other people — except in this one tragic way](https://www.postandcourier.com/opinion/editorials/editorial-alex-murdaugh-isnt-like-other-people-except-in-this-one-tragic-way/article_48969a4e-06a7-11ed-899f-f762c6f1b95d.html)** |
 | **[Alex Murdaugh Bond Hearing: Evidence, Details To Be Discussed](https://www.fitsnews.com/2022/07/19/alex-murdaugh-bond-hearing-evidence-details-to-be-discussed/)** |
 | **July 20, 2022**|
 | **[Alex Murdaugh requests speedy trial, gag order in double-murder case](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-requests-speedy-trial-gag-order-in-double-murder-case/article_3c989a50-06a5-11ed-9feb-bfcc9dc415c7.html)** |
