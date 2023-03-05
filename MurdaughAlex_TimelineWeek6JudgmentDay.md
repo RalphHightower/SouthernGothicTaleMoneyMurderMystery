@@ -1,4 +1,4 @@
-# Judgement Day for Alex Murdaugh — Week 6 (Feb 27 — Mar 3)
+# Judgement Day for Alex Murdaugh — Week 6 (Feb 27 — Mar 3, *4*)
 
 ## Boss Hogg of Hampton County 
 
@@ -242,6 +242,46 @@ Murdaughs’ attorneys said they don’t regret their work on the case, includin
 |He has traded that opulence for a 10-by-8-foot prison cell of concrete and steel, outfitted with just a toilet, bed and sink.|
 | **[DATELINE FRIDAY, March 3 at 9/8c on NBC.: The Trial of Alex Murdaugh](https://www.nbc.com/dateline/video/the-trial-of-alex-murdaugh/9000267458)** |
 A once-prominent South Carolina attorney, Alex Murdaugh, faces a trial for the murders of his wife, Maggie, and son, Paul. Craig Melvin reports Friday, March 3, 2023. |
+| **March 4, 2023** |
+| **[Alex Murdaugh’s double murder trial leaves enduring mysteries, even after guilty verdict](https://www.postandcourier.com/murdaugh-updates/alex-murdaugh-s-double-murder-trial-leaves-enduring-mysteries-even-after-guilty-verdict/article_2bb3d5d8-ba0a-11ed-93f1-97c5b908d735.html)** |
+|ISLANDTON — Jurors rode with a caravan of sheriff’s deputies down a narrow country road past cow pastures and a handful of homes to consider the mystery of what happened here behind a stand of pine trees, a place remote in location but deep in the American fascination. They saw the narrow dog food storage room where Paul Murdaugh was blasted twice with a shotgun at close range. They saw the lean-to shed where his mother, Maggie, was gunned down as, prosecutors contend, she ran to her son.|
+|And they saw the dog kennels where Paul took one of the last actions in his 22-year life: recording a video of a dog’s possibly injured tail. The footage would have been unexceptional if it hadn’t captured the voice of his father in the background. Alex Murdaugh told investigators, friends and his slain wife’s family that he hadn’t been with them. In his last moments, Paul, described by family as a “little detective,” caught Murdaugh in a lie.|
+|The next day, the jurors decided they had heard enough. They quickly returned guilty verdicts March 2 against Murdaugh, the once-prosperous, now-notorious fourth-generation lawyer from one of South Carolina’s smallest counties. They look less time to make their decision than prosecutors spent laying out their case in closing arguments. But while 12 jurors decided they were convinced of Murdaugh’s responsibility for the killings, the six-week trial did more to sketch the outlines of what happened on June 7, 2021, than it did to answer how and why it did.|
+|For weeks, the mystery of the Murdaugh murders drew hundreds of onlookers to Walterboro’s small, antebellum courthouse each day and millions of viewers to YouTube livestreams and the national news. With the world watching, jurors answered the question of who committed the killings, but the proceedings left much of the mystery unresolved.|
+|Even Judge Clifton Newman was left to wonder what could have led Murdaugh to such brutality.|
+|Prosecutors with the S.C. Attorney General’s Office laid out reams of evidence describing what happened that night at the Murdaugh family’s remote, sprawling hunting estate along the banks of the Salkehatchie River. |
+|They presented granular data from Maggie and Paul’s iPhones, showing down to the second when they read text messages, awakened the screen and even turned their phones to one side. |
+|They showed jurors data from the black box of Murdaugh’s car, letting them see exactly when and how fast he drove off his property that night. |
+|They brought a forensic analysis of the bullet casings found near Maggie’s body showing the rifle she was killed with made tiny marks matching those on casings elsewhere on the property.|
+|They used Paul’s cellphone video of the dog to show that Murdaugh, 54, was with his wife and son as late as 8:45 p.m. And they used their phones’ data to show that Maggie and Paul abruptly stopped responding to phone calls and text messages at 8:49 p.m. |
+|But even a close examination of Maggie and Paul’s digital lives could offer only a broad-stroked sketch of what transpired in those four minutes, presumably their last. While insisting he left the kennels before they died, Murdaugh testified that the family’s dogs roamed around seemingly unalarmed, as though they didn’t detect the presence of an intruder. |
+|Paul opened a text message from a friend asking for a happy movie to watch because she didn’t want to see something sad; then his phone locked for the last time.|
+|Maggie opened a group message about Murdaugh’s dying father, who had been readmitted to the hospital earlier in the day. Her phone locked for the last time 30 seconds after Paul’s had.|
+|Investigators never located the weapons used in the killings. They also could not find bloody clothes, though prosecutors cast suspicion on Murdaugh by providing evidence that he changed at some point that evening. They argued that the clothes officers saw him wearing were too clean for a man who claimed he had checked on his slain family while he waited for help to arrive.|
+| *“Maybe he just got angry. … Maybe he just lost it. Maybe it looked like a suicide and then Maggie came and he had to shoot her,”* prosecutor John Meadors said in a closing argument. *“I don’t know. Only one person knows.”* |
+|The prosecution also took pains to detail the context of Murdaugh’s life in 2021, arguing that on the night of the killings, he stood at the precipice of a ruinous fall from grace.|
+|His law firm’s finance chief confronted him that afternoon about legal fees she couldn’t account for. He spent part of his workday preparing for a court hearing at which he might have been ordered to turn over information about his finances. They were swamped by debt and held up by a long, hidden history of stealing.|
+|A month earlier, Paul had demanded to talk about a bag of pills found in his father’s computer bag, according to cellphone records; the day before the killing, Murdaugh skipped at least part of a postseason Gamecock baseball game because he was ill, apparently in the throes of withdrawal from opioid pills. But Murdaugh had attempted detoxing before, and the family was well aware of his addiction, his surviving son Buster said.|
+|Trial observers have inferred countless possible motives from the evidence. Prosecutors’ official theory is that Murdaugh used the killings to shut down questions about his finances and keep his alleged thefts hidden. Yet the true motivation for the killings is a mystery all the same.|
+|Family friends testified they viewed Murdaugh as a loving husband and doting father. There was scant evidence shown at trial to suggest his marriage or his relationship with his son had suddenly frayed.|
+|There was no conclusive answer for why, one Monday evening, he would blast his son with a shotgun and turn a military-style rifle on his 52-year-old wife.|
+|Those answers aren’t likely to come from Murdaugh, who twice professed his innocence the morning after the jury returned its verdict.|
+|Standing before Newman awaiting his prison sentence, Murdaugh insisted — just as he had on the witness stand — that he would never hurt his wife and son. Even if he had recanted, his story would be clouded by his long history of admitted lies.|
+|From the witness stand, Murdaugh acknowledged lying over and over to his clients, from whom he admitted stealing money. And he testified that he’d lied to investigators and family about where he had been the night of the murders, saying he’d been napping when he had really been at the kennels. One juror told ABC News that Murdaugh’s admission sealed his guilty vote.|
+|As he testified, Murdaugh alluded to the words of the Scottish novelist Sir Walter Scott, saying, *“Oh what a tangled web we weave.”* Preparing to sentence him, Newman asked him to explain why he invoked that quote.|
+| *“I meant when I lied, I continued to lie,”* said Murdaugh, who insisted in his testimony that he is now telling the truth about June 7, 2021.|
+| *“And the question is, when will it end? When will it end?”* Newman responded. *“It’s ended already for the jury, because they’ve concluded you continued to lie and lied throughout your testimony.”*|
+|Newman said it had ended for most everyone in the public, too, as the “throngs” around the Colleton County Courthouse seemed to have decided he was not telling the truth.|
+|All that remained, the judge said, was for Murdaugh to address his lies *“within your own soul.”* He urged Murdaugh to think of Maggie and Paul and *“reflect on the last time you looked them in the eyes, as you looked the jury in the eyes.”* |
+|Considering Murdaugh’s sentence March 3, Newman seemed to wrestle with the same question of why Maggie and Paul died, finding the same uncertain answers.|
+|The judge said that in his 22 years on the bench, he had heard convicted killers confess, but he’d never heard one *“go there”* — to return to the moment they pulled the trigger and explain why.|
+|*“It might not have been you. It might have been the monster you become when you take 15, 20, 30, 40, 50, 60 opioid pills. Maybe you become another person. I’ve seen that before,”* Newman said.|
+|Looking straight at Murdaugh, the judge engaged in a 17-minute soliloquy about the case, which he said he’d found particularly troubling. He reflected on the Murdaugh family’s long hold on prosecutorial power in the southern end of South Carolina, his betrayal of his oath as an attorney, and the brutality of the murders for which he was convicted.|
+|Newman tried to imagine the pressures Murdaugh was under: the law firm questioning him, another lawyer pressing him for financial records, his father all but on his death bed.|
+|Yet, Newman added, Murdaugh testified that it had been a typical day, *“just enjoying life”* with his wife and son. It didn’t make sense, the judge said.|
+|*“You can convince yourself about it, but obviously you have the inability to convince anyone else about that,”* Newman said.
+Then he handed down his decision of consecutive life sentences and ordered Murdaugh into state custody. His legs shackled, a deputy holding his arm, he shuffled through the door he had entered each of the 29 days of the trial that sealed his fall from grace.|
+|Murdaugh looked back into the courtroom for a moment, and the door closed.|
 
 
 | **Full text of Judge Clifton Newman sentencing of Richard Alexander Murdaugh** |
