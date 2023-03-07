@@ -1,3 +1,7 @@
+# Judgement Day (Post) for Alex Murdaugh — Week 7 (Mar 6)
+
+## Boss Hogg of Hampton County 
+
 | **March 6, 2023** |
 |----|
 | **[Walterboro For The Win …](https://www.fitsnews.com/2023/03/06/walterboro-for-the-win/)** |
