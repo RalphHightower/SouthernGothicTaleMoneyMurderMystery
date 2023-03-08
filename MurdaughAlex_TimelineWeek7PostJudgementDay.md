@@ -54,7 +54,6 @@
 |That was particularly challenging in the Murdaugh trial, for which more than 250 potential witnesses were identified. Prospective jurors disclosed all manner of previous connections as they were questioned over two days: One was engaged to a first responder. Others had sold a truck to a witness, detailed cars for witnesses and installed HVAC systems for them. Even the clerk of court’s daughter was called for jury duty.|
 |To address the web of connections, court officials sent questionnaires to some 900 possible jurors — more than 2 percent of Colleton County’s population.|
 | **March 8, 2023** |
-|---|
 | **[‘Murdaugh Murders’ Trial: ‘Egg Juror’ Doesn’t Want To Talk](https://www.fitsnews.com/2023/03/08/murdaugh-murders-trial-egg-juror-doesnt-want-to-talk/)** |
 |Attorney: “.*She earned through her public service the right to have her wishes respected.”* |
 |One of the most bizarre (and decisive) moments of convicted killer Alex Murdaugh‘s double homicide trial unfolded just hours before his case was sent to a Colleton County, South Carolina jury last Thursday. I am referring, of course, to the infamous *“egg juror”* – who was relieved of her duties by S.C. circuit court judge Clifton Newman midway through closing arguments in the case.|
