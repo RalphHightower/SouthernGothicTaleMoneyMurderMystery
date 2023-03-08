@@ -1,4 +1,4 @@
-# Judgement Day (Post) for Alex Murdaugh — Week 7 (Mar 6)
+# Judgement Day (Post) for Alex Murdaugh — Week 7 (Mar 6 – ...)
 
 ## Boss Hogg of Hampton County 
 
@@ -53,3 +53,23 @@
 |University of South Carolina law professor Rob Wilcox, who teaches legal ethics, said Newman could have disqualified the juror if he felt he couldn’t be impartial. The fact that he didn’t suggests the judge was satisfied he could be fair, Wilcox said. The questions he faced from the judge would have focused on his bias, not the relationship itself, Wilcox said. In small counties, it can be difficult to find jurors who have no connection to a case.|
 |That was particularly challenging in the Murdaugh trial, for which more than 250 potential witnesses were identified. Prospective jurors disclosed all manner of previous connections as they were questioned over two days: One was engaged to a first responder. Others had sold a truck to a witness, detailed cars for witnesses and installed HVAC systems for them. Even the clerk of court’s daughter was called for jury duty.|
 |To address the web of connections, court officials sent questionnaires to some 900 possible jurors — more than 2 percent of Colleton County’s population.|
+| **March 8, 2023** |
+|---|
+| **[‘Murdaugh Murders’ Trial: ‘Egg Juror’ Doesn’t Want To Talk](https://www.fitsnews.com/2023/03/08/murdaugh-murders-trial-egg-juror-doesnt-want-to-talk/)** |
+|Attorney: “.*She earned through her public service the right to have her wishes respected.”* |
+|One of the most bizarre (and decisive) moments of convicted killer Alex Murdaugh‘s double homicide trial unfolded just hours before his case was sent to a Colleton County, South Carolina jury last Thursday. I am referring, of course, to the infamous *“egg juror”* – who was relieved of her duties by S.C. circuit court judge Clifton Newman midway through closing arguments in the case.|
+|Newman’s decision to remove the *“egg juror”* would ultimately prove pivotal to the unanimous guilty verdicts handed down against the disbarred lawyer – who was sentenced to life in prison last week for the savage slayings of his wife, 52-year-old Maggie Murdaugh, and younger son, 22-year-old Paul Murdaugh. Maggie and Paul were brutally murdered on June 7, 2021 at Moselle – the family’s 1,700-acre hunting property straddling the Salkehatchie River on the border of Colleton and Hampton counties.|
+|Newman removed the juror in question for allegedly having improper conversations with three individuals regarding *“evidence and testimony at that point in the trial.”* The juror compounded the problem by allegedly lying to Newman about these communications – violating his order that jurors not discuss the case with anyone (or each other).|
+|After a two-day investigation into the allegations, Newman opted to remove the woman – juror No. 785 – *“in order to protect the integrity of the process.”* *“You have been by all accounts a great juror,”* Newman said, telling her she had *“smiled consistently, seemingly been attentive to the case and performed well.”* |
+|Newman added he was *“not suggesting you intentionally did anything wrong”* – and thanked the juror for her service. |
+|As she was being dismissed, Newman asked the juror whether she had anything remaining in the jury room.|
+| *“A dozen eggs,”* she replied.|
+| *“A dozen eggs?”* Newman responded, smiling.|
+| *“You want to leave the eggs or take the eggs?”* the judge asked the juror, who indicated her desire to take them.|
+| *“Mister bailiff: Can you retrieve from the jury room her dozen eggs?”* Newman said.|
+|Here, in its entirety, is the “egg juror” [exchange as it unfolded last Thursday morning …](https://youtu.be/2_BGVhnN-CE) |
+| *“As you know the identity of the jurors are confidential (and) not known to the public,” Newman told the juror. *“Cameras are not allowed to videotape the jurors and we have operated by juror numbers. Your identity will be kept confidential as long as the court is concerned.”*|
+|This week, Columbia, S.C. attorney Joe McCulloch – a fixture at the Murdaugh trial – issued a statement on behalf of the “egg juror” asking the public and members of the media to stop trying to contact her.|
+|*“I am reaching out to the press and public today on behalf of juror No. 785 who was excused from the jury in the State v. Murdaugh case just prior to deliberations,”* McCulloch said in the statement. *“I am requesting that everyone respect her privacy at both her home and her place of work. While other jurors have chosen to comment, which is their prerogative, that is not her desire at this time.”*  *“Given her public service for the weeks of trial, she earned through her public service the right to have her wishes respected,”* McCulloch added. *“She wishes you to know that she took the juror oath and all of the subsequent court’s instructions seriously and believes she followed them appropriately. She now wishes freedom from contact and harassment and requests that efforts to contact her at her home or work come to an immediate end. In that regard, we have requested the assistance of the Colleton County sheriff’s department. All further questions can be directed to my office.”* |
+|As this news outlet reported last week, the “egg juror” – had she remained on the panel – would have likely wound up keeping the state from securing convictions against Murdaugh. |
+| *“She was dug in,”* a source familiar with the deliberations confirmed. *“She said he was ‘not guilty’ and there was nothing anyone could do to change her mind.”* *“She would have hung the jury,”* another source confirmed.
