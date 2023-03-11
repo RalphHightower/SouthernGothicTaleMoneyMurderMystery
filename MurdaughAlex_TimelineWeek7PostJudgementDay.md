@@ -84,7 +84,6 @@ Court battle begins …|
 |Murdaugh was found guilty last Thursday by a Colleton County jury in the savage slayings of his wife, 52-year-old Maggie Murdaugh, and younger son, 22-year-old Paul Murdaugh on June 7, 2021 at Moselle – the family’s 1,700-acre hunting property straddling the Salkehatchie River on the border of Colleton and Hampton counties. He was sentenced to life in prison without the possibility of parole by S.C. circuit court judge Clifton Newman last Friday.|
 |The scion of an influential South Carolina legal dynasty, Murdaugh once led the Palmetto State’s powerful trial lawyers’ lobby. Today, he remains squarely at the epicenter of a maze of alleged criminality known as the ‘Murdaugh Murders’ crime and corruption saga.|
 |Speaking of that saga, Wilson’s office is preparing to move forward with the next round of criminal charges against Murdaugh.|
-| **March 9, 2023** |
 | **[Alex Murdaugh’s Attorneys File Notice Of Appeal](https://www.fitsnews.com/2023/03/09/alex-murdaughs-attorneys-file-notice-of-appeal/)** |
 Court battle begins …|
 |As required by law, attorneys for convicted killer Alex Murdaugh served the state of South Carolina with notice of their intention to appeal his recent Colleton County convictions on murder and weapons charges. The notice doesn’t lay out any specific grounds for Murdaugh’s appeal, it merely states that he “appeals his convictions and sentences.”|
